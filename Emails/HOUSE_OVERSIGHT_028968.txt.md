@@ -6,4 +6,4 @@ date:
 ---
 
 Privileged - Redacted 
-; Jack Goldberger
+; [[Jack Goldberger]]

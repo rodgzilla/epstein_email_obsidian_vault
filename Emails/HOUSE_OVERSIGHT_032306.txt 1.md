@@ -5,7 +5,7 @@ receiver: "[[Darren Indyke]]"
 date: "2016-10-08 16:52:27"
 ---
 
-Michael C. Miller 
+[[Michael]] C. [[Miller]] 
 Partner 
 www.steptoe.com/mmiller 
 Steptoe 

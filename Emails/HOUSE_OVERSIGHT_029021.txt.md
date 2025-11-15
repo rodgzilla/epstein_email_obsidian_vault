@@ -1,406 +1,406 @@
----
+[[To]][[I]][[To]][[I]][[To]][[To]][[To]][[To]][[To]][[To]][[To]][[To]][[I]][[To]][[To]][[From]][[To]][[To]][[To]][[To]][[I]][[To]][[From]][[To]][[I]][[To]][[I]][[I]][[I]][[-]][[I]][[I]][[To]][[I]][[From]][[To]][[To]][[To]][[To]][[To]][[I]][[I]][[I]][[To]][[I]][[To]][[I]][[To]][[I]][[I]][[I]][[To]][[I]][[To]][[-]][[I]][[To]][[-]][[-]][[To]][[To]][[I]][[To]][[To]][[To]][[I]][[From]][[I]][[I]][[To]][[To]][[I]][[-]][[I]][[I]][[I]][[I]][[To]][[I]][[To]][[I]][[To]][[I]][[I]][[-]][[I]][[I]][[To]][[I]][[I]][[I]][[I]][[To]][[To]][[To]][[I]][[To]][[From]][[To]][[I]][[From]][[To]][[From]][[I]][[I]][[I]][[-]][[To]][[From]][[I]][[I]][[To]][[To]][[I]][[To]][[To]][[To]][[To]][[To]][[To]][[I]][[To]][[To]][[-]][[I]][[From]][[To]][[-]][[To]][[To]][[I]][[To]][[-]][[I]][[To]][[To]][[I]][[-]][[I]][[To]][[To]][[To]][[To]][[From]][[To]][[To]][[To]][[To]][[I]][[I]][[I]][[To]][[To]][[To]][[To]][[To]][[Hill]][[I]][[To]][[From]][[From]][[To]][[To]]---
 filename: "HOUSE_OVERSIGHT_029021.txt"
 sender: "[[Alain Forget]]"
 receiver: "[[jeeyacation@gmail.com]]"
 date: "2016-11-18 11:12:27"
 ---
 
-Donald Trump's newly named chief strategist and senior counselor, Steve Bannon, laid 
-out his global nationalist vision in unusually in-depth remarks delivered by Skype to a 
+Donald Trump's newly named chief strategist and senior counselor, [[Steve Bannon]], laid 
+out his global nationalist vision in unusually in[[-]]depth remarks delivered by Skype [[To]] a 
 conference held inside the Vatican in the summer of 2014. 
 Well before victories for Brexit and Trump seemed possible, Bannon declared there was 
-a "global tea party movement" and praised European far-right parties like Great 
+a "global tea party movement" and praised European far[[-]]right parties like Great 
 Britain's UKIP and France's National Front. Bannon also suggested that a racist element 
-in far-right parties "all gets kind of washed out," that the West was facing a "crisis of 
-capitalism" after losing its "Judeo-Christian foundation," and he blasted "crony 
-capitalists" in Washington for failing to prosecute bank executives over the financial 
+in far[[-]]right parties "all gets kind of washed out," that the West was facing a "crisis of 
+capitalism" after losing its "Judeo[[-]]Christian foundation," and he blasted "crony 
+capitalists" in Washington for failing [[To]] prosecute bank executives over the financial 
 crisis. 
-The remarks — beamed into a small conference room in a 15th-century marble palace in 
-a secluded corner of the Vatican — were part of a 5o-minute Q&A during a conference 
+The remarks — beamed into a small conference room in a 15th[[-]]century marble palace in 
+a secluded corner of the Vatican — were part of a 5o[[-]]minute Q&A during a conference 
 focused on poverty hosted by the Human Dignity Institute, which BuzzFeed News 
 attended as part of its coverage of the rise of Europe's religious right. The group was 
-founded by Benjamin Harnwell, a longtime aide to Conservative member of the 
-European Parliament Nirj Deva to promote a "Christian voice" in European politics. The 
-group has ties to some of the most conservative factions inside the Catholic 
+founded by [[Benjamin Harnwell]], a longtime aide [[To]] Conservative member of the 
+European Parliament Nirj Deva [[To]] promote a "Christian voice" in European politics. The 
+group has ties [[To]] some of the most conservative factions inside the Catholic 
 Church; Cardinal Raymond Burke, one of the most vocal critics of Pope Francis who was 
-ousted from a senior Vatican position in 2014, is chair of the group's advisory board. 
+ousted [[From]] a senior Vatican position in 2014, is chair of the group's advisory board. 
 BuzzFeed News originally posted a transcript beginning 90 seconds into the then-
 Breitbart News chairman's remarks because microphone placement made the opening 
-mostly unintelligible, but we have completed the transcript from a video of the talk on 
+mostly unintelligible, but we have completed the transcript [[From]] a video of the talk on 
 YouTube. You can hear the whole recording at the bottom of the post. 
 Here is what he said, unedited: 
-Steve Bannon: Thank you very much Benjamin, and I appreciate you guys including us 
-in this. We're speaking from Los Angeles today, right across the street from our 
+[[Steve Bannon]]: Thank you very much Benjamin, and [[I]] appreciate you guys including us 
+in this. We're speaking [[From]] Los Angeles today, right across the street [[From]] our 
 HOUSE OVERSIGHT 029021 
-headquarters in Los Angeles. Urn. I want to talk about wealth creation and what wealth 
-creation really can achieve and maybe take it in a slightly different direction, because I 
-believe the world, and particularly the Judeo-Christian west, is in a crisis. And it's really 
-the organizing principle of how we built Breitbart News to really be a platform to bring 
-news and information to people throughout the world. Principally in the west, but we're 
-expanding internationally to let people understand the depths of this crisis, and it is a 
-crisis both of capitalism but really of the underpinnings of the Judeo-Christian west in our 
+headquarters in Los Angeles. Urn. [[I]] want [[To]] talk about wealth creation and what wealth 
+creation really can achieve and maybe take it in a slightly different direction, because [[I]] 
+believe the world, and particularly the Judeo[[-]]Christian west, is in a crisis. And it's really 
+the organizing principle of how we built Breitbart News [[To]] really be a platform [[To]] bring 
+news and information [[To]] people throughout the world. Principally in the west, but we're 
+expanding internationally [[To]] let people understand the depths of this crisis, and it is a 
+crisis both of capitalism but really of the underpinnings of the Judeo[[-]]Christian west in our 
 beliefs. 
-It's ironic, I think, that we're talking today at exactly, tomorrow, roo years ago, at the exact 
+It's ironic, [[I]] think, that we're talking today at [[Exactly]], tomorrow, roo years ago, at the exact 
 moment we're talking, the assassination took place in Sarajevo of Archduke Franz 
-Ferdinand that led to the end of the Victorian era and the beginning of the bloodiest 
-century in mankind's history. Just to put it in perspective, with the assassination that took 
+Ferdinand that led [[To]] the end of the Victorian era and the beginning of the bloodiest 
+century in mankind's history. Just [[To]] put it in perspective, with the assassination that took 
 place roo years ago tomorrow in Sarajevo, the world was at total peace. There was trade, 
 there was globalization, there was technological transfer, the High Church of England and 
 the Catholic Church and the Christian faith was predominant throughout Europe of 
-practicing Christians. Seven weeks later, I think there were 5 million men in uniform and 
+practicing Christians. Seven weeks later, [[I]] think there were 5 million men in uniform and 
 within 30 days there were over a million casualties. 
 That war triggered a century of barbaric — unparalleled in mankind's history — virtually 
-180 to 200 million people were killed in the 20th century, and I believe that, you know, 
-hundreds of years from now when they look back, we're children of that: We're children of 
+180 [[To]] 200 million people were killed in the 20th century, and [[I]] believe that, you know, 
+hundreds of years [[From]] now when they look back, we're children of that: We're children of 
 that barbarity. This will be looked at almost as a new Dark Age. 
 But the thing that got us out of it, the organizing principle that met this, was not just the 
 heroism of our people — whether it was French resistance fighters, whether it was the 
-Polish resistance fighters, or it's the young men from Kansas City or the Midwest who 
+Polish resistance fighters, or it's the young men [[From]] Kansas City or the Midwest who 
 stormed the beaches of Normandy, commandos in England that fought with the Royal Air 
-Force, that fought this great war, really the Judeo-Christian West versus atheists, right? 
+Force, that fought this great war, really the Judeo[[-]]Christian West versus atheists, right? 
 The underlying principle is an enlightened form of capitalism, that capitalism really gave 
-us the wherewithal. It kind of organized and built the materials needed to support, 
-whether it's the Soviet Union, England, the United States, and eventually to take back 
-continental Europe and to beat back a barbaric empire in the Far East. 
+us the wherewithal. It kind of organized and built the materials needed [[To]] support, 
+whether it's the Soviet Union, England, the United States, and eventually [[To]] take back 
+continental Europe and [[To]] beat back a barbaric empire in the Far East. 
 That capitalism really generated tremendous wealth. And that wealth was really 
-distributed among a middle class, a rising middle class, people who come from really 
+distributed among a middle class, a rising middle class, people who come [[From]] really 
 HOUSE OVERSIGHT 029022 
-working-class environments and created what we really call a Pax Americana. It was 
-many, many years and decades of peace. And I believe we've come partly offtrack in the 
-years since the fall of the Soviet Union and we're starting now in the 21st century, which I 
+working[[-]]class environments and created what we really call a Pax Americana. It was 
+many, many years and decades of peace. And [[I]] believe we've come partly offtrack in the 
+years since the fall of the Soviet Union and we're starting now in the 21st century, which [[I]] 
 believe, strongly, is a crisis both of our church, a crisis of our faith, a crisis of the West, a 
 crisis of capitalism. 
-"I believe we've come partly offtrack in the 
+"[[I]] believe we've come partly offtrack in the 
 years since the fall of the Soviet Union and 
-we're starting now in the 21st century, which I 
+we're starting now in the 21st century, which [[I]] 
 believe, strongly, is a crisis both of our church, 
 a crisis of our faith, a crisis of the West, a crisis 
 of capitalism." 
 And we're at the very beginning stages of a very brutal and bloody conflict, of which if the 
-people in this room, the people in the church, do not bind together and really form what I 
-feel is an aspect of the church militant, to really be able to not just stand with our beliefs, 
-but to fight for our beliefs against this new barbarity that's starting, that will completely 
+people in this room, the people in the church, do not bind together and really form what [[I]] 
+feel is an aspect of the church militant, [[To]] really be able [[To]] not just stand with our beliefs, 
+but [[To]] fight for our beliefs against this new barbarity that's starting, that will completely 
 eradicate everything that we've been bequeathed over the last 2,000, 2,500 years. 
-Now, what I mean by that specifically: I think that you're seeing three kinds of converging 
-tendencies: One is a form of capitalism that is taken away from the underlying spiritual 
-and moral foundations of Christianity and, really, Judeo-Christian belief. 
-I see that every day. I'm a very practical, pragmatic capitalist. I was trained at Goldman 
-Sachs, I went to Harvard Business School, I was as hard-nosed a capitalist as you get. I 
+Now, what [[I]] mean by that specifically: [[I]] think that you're seeing three kinds of converging 
+tendencies: One is a form of capitalism that is taken away [[From]] the underlying spiritual 
+and moral foundations of Christianity and, really, Judeo[[-]]Christian belief. 
+[[I]] see that every day. [[I]]'m a very practical, pragmatic capitalist. [[I]] was trained at Goldman 
+Sachs, [[I]] went [[To]] Harvard Business School, [[I]] was as hard[[-]]nosed a capitalist as you get. [[I]] 
 specialized in media, in investing in media companies, and it's a very, very tough 
-environment. And you've had a fairly good track record. So I don't want this to kinda 
-sound namby-pamby, "Let's all hold hands and sing `Kumbaya' around capitalism." 
+environment. And you've had a fairly good track record. So [[I]] don't want this [[To]] kinda 
+sound namby[[-]]pamby, "Let's all hold hands and sing `Kumbaya' around capitalism." 
 But there's a strand of capitalism today — two strands of it, that are very disturbing. 
-One is state-sponsored capitalism. And that's the capitalism you see in China and Russia. I 
+One is state[[-]]sponsored capitalism. And that's the capitalism you see in China and Russia. [[I]] 
 believe it's what Holy Father [Pope Francis] has seen for most of his life in places like 
 HOUSE OVERSIGHT 029023 
 Argentina, where you have this kind of crony capitalism of people that are involved with 
-these military powers-that-be in the government, and it forms a brutal form of capitalism 
+these military powers[[-]]that[[-]]be in the government, and it forms a brutal form of capitalism 
 that is really about creating wealth and creating value for a very small subset of people. 
 And it doesn't spread the tremendous value creation throughout broader distribution 
 patterns that were seen really in the 20th century. 
-The second form of capitalism that I feel is almost as disturbing, is what I call the Ayn 
-Rand or the Objectivist School of libertarian capitalism. And, look, I'm a big believer in a 
-lot of libertarianism. I have many many friends that's a very big part of the conservative 
+The second form of capitalism that [[I]] feel is almost as disturbing, is what [[I]] call the Ayn 
+Rand or the Objectivist School of libertarian capitalism. And, look, [[I]]'m a big believer in a 
+lot of libertarianism. [[I]] have many many friends that's a very big part of the conservative 
 movement — whether it's the UKIP movement in England, it's many of the underpinnings 
 of the populist movement in Europe, and particularly in the United States. 
-However, that form of capitalism is quite different when you really look at it to what I call 
-the "enlightened capitalism" of the Judeo-Christian West. It is a capitalism that really 
-looks to make people commodities, and to objectify people, and to use them almost — as 
-many of the precepts of Marx — and that is a form of capitalism, particularly to a younger 
+However, that form of capitalism is quite different when you really look at it [[To]] what [[I]] call 
+the "enlightened capitalism" of the Judeo[[-]]Christian West. It is a capitalism that really 
+looks [[To]] make people commodities, and [[To]] objectify people, and [[To]] use them almost — as 
+many of the precepts of Marx — and that is a form of capitalism, particularly [[To]] a younger 
 generation [that] they're really finding quite attractive. And if they don't see another 
-alternative, it's going to be an alternative that they gravitate to under this kind of rubric of 
+alternative, it's going [[To]] be an alternative that they gravitate [[To]] under this kind of rubric of 
 “personal freedom." 
 "Look at what's happening in ISIS ... look at 
 the sophistication of which they've taken the 
 tools of capitalism ... at what they've done 
 with Twitter and Facebook." 
-The other tendency is an immense secularization of the West. And I know we've talked 
+The other tendency is an immense secularization of the West. And [[I]] know we've talked 
 about secularization for a long time, but if you look at younger people, especially 
-millennials under 30, the overwhelming drive of popular culture is to absolutely secularize 
+millennials under 30, the overwhelming drive of popular culture is [[To]] absolutely secularize 
 this rising iteration. 
 HOUSE OVERSIGHT 029024 
-Now that call converges with something we have to face, and it's a very unpleasant topic, 
-but we are in an outright war against jihadist Islamic fascism. And this war is, I think, 
+Now that call converges with something we have [[To]] face, and it's a very unpleasant topic, 
+but we are in an outright war against jihadist Islamic fascism. And this war is, [[I]] think, 
 metastasizing far quicker than governments can handle it. 
 If you look at what's happening in ISIS, which is the Islamic State of Syria and the Levant, 
 that is now currently forming the caliphate that is having a military drive on Baghdad, if 
 you look at the sophistication of which they've taken the tools of capitalism. If you look at 
-what they've done with Twitter and Facebook and modern ways to fundraise, and to use 
-crowdsourcing to fund, besides all the access to weapons, over the last couple days they 
-have had a radical program of taking kids and trying to turn them into bombers. They have 
+what they've done with Twitter and Facebook and modern ways [[To]] fundraise, and [[To]] use 
+crowdsourcing [[To]] fund, besides all the access [[To]] weapons, over the last couple days they 
+have had a radical program of taking kids and trying [[To]] turn them into bombers. They have 
 driven 50,000 Christians out of a town near the Kurdish border. We have video that we're 
 putting up later today on Breitbart where they've took 50 hostages and thrown them off a 
 cliff in Iraq. 
-That war is expanding and it's metastasizing to sub-Saharan Africa. We have Boko Haram 
+That war is expanding and it's metastasizing [[To]] sub[[-]]Saharan Africa. We have Boko Haram 
 and other groups that will eventually partner with ISIS in this global war, and it is, 
-unfortunately, something that we're going to have to face, and we're going to have to face 
+unfortunately, something that we're going [[To]] have [[To]] face, and we're going [[To]] have [[To]] face 
 very quickly. 
-So I think the discussion of, should we put a cap on wealth creation and distribution? It's 
+So [[I]] think the discussion of, should we put a cap on wealth creation and distribution? It's 
 something that should be at the heart of every Christian that is a capitalist — "What is the 
-purpose of whatever I'm doing with this wealth? What is the purpose of what I'm doing 
-with the ability that God has given us, that divine providence has given us to actually be a 
+purpose of whatever [[I]]'m doing with this wealth? What is the purpose of what [[I]]'m doing 
+with the ability that God has given us, that divine providence has given us [[To]] actually be a 
 creator of jobs and a creator of wealth?" 
-I think it really behooves all of us to really take a hard look and make sure that we are 
-reinvesting that back into positive things. But also to make sure that we understand that 
+[[I]] think it really behooves all of us [[To]] really take a hard look and make sure that we are 
+reinvesting that back into positive things. But also [[To]] make sure that we understand that 
 we're at the very beginning stages of a global conflict, and if we do not bind together as 
-partners with others in other countries that this conflict is only going to metastasize. 
+partners with others in other countries that this conflict is only going [[To]] metastasize. 
 They have a Twitter account up today, ISIS does, about turning the United States into a 
-"river of blood" if it comes in and tries to defend the city of Baghdad. And trust me, that is 
-going to come to Europe. That is going to come to Central Europe, it's going to come to 
-Western Europe, it's going to come to the United Kingdom. And so I think we are in a 
-crisis of the underpinnings of capitalism, and on top of that we're now, I believe, at the 
+"river of blood" if it comes in and tries [[To]] defend the city of Baghdad. And trust me, that is 
+going [[To]] come [[To]] Europe. That is going [[To]] come [[To]] Central Europe, it's going [[To]] come [[To]] 
+Western Europe, it's going [[To]] come [[To]] the United Kingdom. And so [[I]] think we are in a 
+crisis of the underpinnings of capitalism, and on top of that we're now, [[I]] believe, at the 
 beginning stages of a global war against Islamic fascism. 
 HOUSE OVERSIGHT 029025 
-"With all the baggage that those [right-wing] 
+"With all the baggage that those [right[[-]]wing] 
 groups bring — and trust me, a lot of them 
 bring a lot of baggage, both ethnically and 
 racially— but we think that will all be worked 
 through with time." 
-Benjamin Harnwell, Human Dignity Institute: Thank you, Steve. That was a 
-fascinating, fascinating overview. I am particularly struck by your argument, then, that in 
-fact, capitalism would spread around the world based on the Judeo-Christian foundation 
+[[Benjamin Harnwell]], Human Dignity Institute: Thank you, Steve. That was a 
+fascinating, fascinating overview. [[I]] am particularly struck by your argument, then, that in 
+fact, capitalism would spread around the world based on the Judeo[[-]]Christian foundation 
 is, in fact, something that can create peace through peoples rather than antagonism, which 
-is often a point not sufficiently appreciated. Before I turn behind me to take a question — 
-Bannon: One thing I want to make sure of, if you look at the leaders of capitalism at that 
-time, when capitalism was I believe at its highest flower and spreading its benefits to most 
-of mankind, almost all of those capitalists were strong believers in the Judeo-Christian 
+is often a point not sufficiently appreciated. Before [[I]] turn behind me [[To]] take a question — 
+Bannon: One thing [[I]] want [[To]] make sure of, if you look at the leaders of capitalism at that 
+time, when capitalism was [[I]] believe at its highest flower and spreading its benefits [[To]] most 
+of mankind, almost all of those capitalists were strong believers in the Judeo[[-]]Christian 
 West. They were either active participants in the Jewish faith, they were active participants 
 in the Christians' faith, and they took their beliefs, and the underpinnings of their beliefs 
-was manifested in the work they did. And I think that's incredibly important and 
-something that would really become unmoored. I can see this on Wall Street today — I can 
+was manifested in the work they did. And [[I]] think that's incredibly important and 
+something that would really become unmoored. [[I]] can see this on Wall Street today — [[I]] can 
 see this with the securitization of everything is that, everything is looked at as a 
-securitization opportunity. People are looked at as commodities. I don't believe that our 
+securitization opportunity. People are looked at as commodities. [[I]] don't believe that our 
 forefathers had that same belief. 
-Harnwell: Over the course of this conference we've heard from various points of view 
-regarding alleviation of poverty. We've heard from the center-left perspective, we've heard 
-from the socialist perspective, we've heard from the Christian democrat, if you will, 
-perspective. What particularly interests me about your point of view Steve, to talk 
-specifically about your work, Breitbart is very close to the tea party movement. So I'm just 
+Harnwell: Over the course of this conference we've heard [[From]] various points of view 
+regarding alleviation of poverty. We've heard [[From]] the center[[-]]left perspective, we've heard 
+[[From]] the socialist perspective, we've heard [[From]] the Christian democrat, if you will, 
+perspective. What particularly interests me about your point of view Steve, [[To]] talk 
+specifically about your work, Breitbart is very close [[To]] the tea party movement. So [[I]]'m just 
 wondering whether you could tell me about if in the current flow of contemporary politics 
 — first tell us a little bit about Breitbart, what the mission is, and then tell me about the 
 HOUSE OVERSIGHT 029026 
 reach that you have and then could you say a little bit about the current dynamic of what's 
 going on at the moment in the States. 
-Bannon: Outside of Fox News and the Drudge Report, we're the third-largest 
+Bannon: Outside of Fox News and the Drudge Report, we're the third[[-]]largest 
 conservative news site and, quite frankly, we have a bigger global reach than even Fox. 
 And that's why we're expanding so much internationally. 
 Look, we believe — strongly — that there is a global tea party movement. We've seen that. 
-We were the first group to get in and start reporting on things like UKIP and Front 
+We were the first group [[To]] get in and start reporting on things like UKIP and Front 
 National and other center right. With all the baggage that those groups bring — and trust 
 me, a lot of them bring a lot of baggage, both ethnically and racially — but we think that 
 will all be worked through with time. 
-The central thing that binds that all together is a center-right populist movement of really 
+The central thing that binds that all together is a center[[-]]right populist movement of really 
 the middle class, the working men and women in the world who are just tired of being 
-dictated to by what we call the party of Davos. A group of kind of — we're not conspiracy-
-theory guys, but there's certainly — and I could see this when I worked at Goldman Sachs 
-— there are people in New York that feel closer to people in London and in Berlin than 
-they do to people in Kansas and in Colorado, and they have more of this elite mentality 
-that they're going to dictate to everybody how the world's going to be run. 
-I will tell you that the working men and women of Europe and Asia and the United States 
+dictated [[To]] by what we call the party of Davos. A group of kind of — we're not conspiracy-
+theory guys, but there's certainly — and [[I]] could see this when [[I]] worked at Goldman Sachs 
+— there are people in New York that feel closer [[To]] people in London and in Berlin than 
+they do [[To]] people in Kansas and in Colorado, and they have more of this elite mentality 
+that they're going [[To]] dictate [[To]] everybody how the world's going [[To]] be run. 
+[[I]] will tell you that the working men and women of Europe and Asia and the United States 
 and Latin America don't believe that. They believe they know what's best for how they will 
-comport their lives. They think they know best about how to raise their families and how 
-to educate their families. So I think you're seeing a global reaction to centralized 
+comport their lives. They think they know best about how [[To]] raise their families and how 
+[[To]] educate their families. So [[I]] think you're seeing a global reaction [[To]] centralized 
 government, whether that government is in Beijing or that government is in Washington, 
 DC, or that government is in Brussels. So we are the platform for the voice of that. 
-"Putin's ... very, very very intelligent. I can see this in the United States where he's 
-playing very strongly to social conservatives about his message about more traditional 
-values, so I think it's something that we have to be very much on guard of." 
+"Putin's ... very, very very intelligent. [[I]] can see this in the United States where he's 
+playing very strongly [[To]] social conservatives about his message about more traditional 
+values, so [[I]] think it's something that we have [[To]] be very much on guard of." 
 Now, with that, we are strong capitalists. And we believe in the benefits of capitalism. And, 
-particularly, the harder-nosed the capitalism, the better. However, like I said, there's two 
+particularly, the harder[[-]]nosed the capitalism, the better. However, like [[I]] said, there's two 
 strands of capitalism that we're quite concerned about. 
 HOUSE OVERSIGHT 029027 
-One is crony capitalism, or what we call state-controlled capitalism, and that's the big 
+One is crony capitalism, or what we call state[[-]]controlled capitalism, and that's the big 
 thing the tea party is fighting in the United States, and really the tea party's biggest fight is 
 not with the left, because we're not there yet. The biggest fight the tea party has today is 
 just like UKIP. UKIP's biggest fight is with the Conservative Party. 
 The tea party in the United States' biggest fight is with the the Republican establishment, 
 which is really a collection of crony capitalists that feel that they have a different set of 
-rules of how they're going to comport themselves and how they're going to run things. 
+rules of how they're going [[To]] comport themselves and how they're going [[To]] run things. 
 And, quite frankly, it's the reason that the United States' financial situation is so dire, 
 particularly our balance sheet. We have virtually a hundred trillion dollars of unfunded 
 liabilities. That is all because you've had this kind of crony capitalism in Washington, DC. 
-The rise of Breitbart is directly tied to being the voice of that center-right opposition. And, 
+The rise of Breitbart is directly tied [[To]] being the voice of that center[[-]]right opposition. And, 
 quite frankly, we're winning many, many victories. 
-On the social conservative side, we're the voice of the anti-abortion movement, the voice of 
-the traditional marriage movement, and I can tell you we're winning victory after victory 
+On the social conservative side, we're the voice of the anti[[-]]abortion movement, the voice of 
+the traditional marriage movement, and [[I]] can tell you we're winning victory after victory 
 after victory. Things are turning around as people have a voice and have a platform of 
 which they can use. 
 HOUSE OVERSIGHT 029028 
 Kirk Irwin / Getty Images 
-Harnwell: The third-largest conservative news website is something to be extremely 
+Harnwell: The third[[-]]largest conservative news website is something [[To]] be extremely 
 impressed by. Can you tell for the people here who aren't within the Anglosphere and they 
-might not follow American domestic politics at the moment — there seems to be a 
+might not follow American domestic politics at the moment — there seems [[To]] be a 
 substantial sea change going on at the moment in Middle America. And the leader of the 
-majority party, Eric Cantor, was deselected a couple of weeks ago by a tea party candidate. 
+majority party, [[Eric]] Cantor, was deselected a couple of weeks ago by a tea party candidate. 
 What does that mean for the state of domestic politics in America at the moment? 
 Bannon: For everybody in your audience, this is one of the most monumental — first off, 
-it's the biggest election upset in the history of the American republic. Eric Cantor was the 
+it's the biggest election upset in the history of the American republic. [[Eric]] Cantor was the 
 House majority leader and raised $10 million. He spent, between himself and outside 
-groups, $8 million to hold a congressional district. He ran against a professor who was an 
+groups, $8 million [[To]] hold a congressional district. He ran against a professor who was an 
 evangelical Christian and a libertarian economist. He ran against a professor who raised in 
-total $175,000. In fact, the bills from Eric Cantor's campaign at a elite steak house in 
+total $175,000. In fact, the bills [[From]] [[Eric]] Cantor's campaign at a elite steak house in 
 Washington, DC, was over $200,000. So they spent more than $200,000 over the course 
 of the campaign wining and dining fat cats at a steak house in Washington than the entire 
-opposition had to run. 
+opposition had [[To]] run. 
 HOUSE OVERSIGHT 029029 
-Now, Eric Cantor, it was a He lost 57-43, and not one — outside of Breitbart, we 
+Now, [[Eric]] Cantor, it was a He lost 57[[-]]43, and not one — outside of Breitbart, we 
 covered this for six months, day in and day out — not one news site — not Fox News, not 
 Politico, no sites picked this up. And the reason that this guy won is quite simple: Middle-
-class people and working-class people are tired of people like Eric Cantor who say they're 
-conservative selling out their interests every day to crony capitalists. 
-"That center-right revolt is really a global 
-revolt. I think you're going to see it in Latin 
-America, I think you're going to see it in Asia, 
-I think you've already seen it in India." 
+class people and working[[-]]class people are tired of people like [[Eric]] Cantor who say they're 
+conservative selling out their interests every day [[To]] crony capitalists. 
+"That center[[-]]right revolt is really a global 
+revolt. [[I]] think you're going [[To]] see it in Latin 
+America, [[I]] think you're going [[To]] see it in Asia, 
+[[I]] think you've already seen it in India." 
 And you're seeing that whether that was UKIP and Nigel Farage in the United Kingdom, 
 whether it's these groups in the Low Countries in Europe, whether it's in France, there's a 
-new tea party in Germany. The theme is all the same. And the theme is middle-class and 
-working-class people — they're saying, "Hey, I'm working harder than I've ever worked. 
-I'm getting less benefits than I'm ever getting through this, I'm incurring less wealth 
-myself, and I'm seeing a system of fat cats who say they're conservative and say they back 
+new tea party in Germany. The theme is all the same. And the theme is middle[[-]]class and 
+working[[-]]class people — they're saying, "Hey, [[I]]'m working harder than [[I]]'ve ever worked. 
+[[I]]'m getting less benefits than [[I]]'m ever getting through this, [[I]]'m incurring less wealth 
+myself, and [[I]]'m seeing a system of fat cats who say they're conservative and say they back 
 capitalist principles, but all they're doing is binding with corporatists." Right? 
-Corporatists, to garner all the benefits for themselves. 
-And that center-right revolt is really a global revolt. I think you're going to see it in Latin 
-America, I think you're going to see it in Asia, I think you've already seen it in India. 
-Modi's great victory was very much based on these Reaganesque principles, so I think this 
-is a global revolt, and we are very fortunate and proud to be the news site that is reporting 
+Corporatists, [[To]] garner all the benefits for themselves. 
+And that center[[-]]right revolt is really a global revolt. [[I]] think you're going [[To]] see it in Latin 
+America, [[I]] think you're going [[To]] see it in Asia, [[I]] think you've already seen it in India. 
+Modi's great victory was very much based on these Reaganesque principles, so [[I]] think this 
+is a global revolt, and we are very fortunate and proud [[To]] be the news site that is reporting 
 that throughout the world. 
-Harnwell: I think it's important to understand the distinction that you're drawing here 
-between what can be understood as authentic, free-market capitalism as a means of 
+Harnwell: [[I]] think it's important [[To]] understand the distinction that you're drawing here 
+between what can be understood as authentic, free[[-]]market capitalism as a means of 
 promoting wealth that [unintelligible] involves everybody with a form of crony capitalism 
 which simply benefits a certain class. And we've watched over the course of our 
 conference, we've watched two video segments produced by the Acton Institute about how 
 HOUSE OVERSIGHT 029030 
-development aid is spent internationally and how that can be driven away from — it 
+development aid is spent internationally and how that can be driven away [[From]] — it 
 damages people on the ground but it also perpetuates a governing class. And the point that 
-you're mentioning here, that I think that you're saying has driven almost a revolution 
+you're mentioning here, that [[I]] think that you're saying has driven almost a revolution 
 movement in America, is the same phenomenon of what's going on in the developing 
 world, which is a concept of government which is no longer doing what it is morally bound 
-to do but has become corrupt and self-serving. So it's effectively the sa—
-Bannon: It's exactly the same. Currently, if you read The Economist, you read 
+[[To]] do but has become corrupt and self[[-]]serving. So it's effectively the sa—
+Bannon: It's [[Exactly]] the same. Currently, if you read The Economist, you read 
 the Financial Times this week, you'll see there's a relatively obscure agency in the federal 
-government that is engaged in a huge fight that may lead to a government shutdown. It's 
-called the Export-Import Bank. And for years, it was a bank that helped finance things that 
-other banks wouldn't do. And what's happening over time is that it's metastasized to be a 
-cheap form of financing to General Electric and to Boeing and to other large corporations. 
-You get this financing from other places if they wanted to, but they're putting this onto the 
-middle-class taxpayers to support this. 
-"I'm not an expert in this, but it seems that [right-wing parties] have had some aspects 
-that may be anti-Semitic or racial ... My point is that over time it all gets kind of washed 
+government that is engaged in a huge fight that may lead [[To]] a government shutdown. It's 
+called the Export[[-]]Import Bank. And for years, it was a bank that helped finance things that 
+other banks wouldn't do. And what's happening over time is that it's metastasized [[To]] be a 
+cheap form of financing [[To]] General Electric and [[To]] Boeing and [[To]] other large corporations. 
+You get this financing [[From]] other places if they wanted [[To]], but they're putting this onto the 
+middle[[-]]class taxpayers [[To]] support this. 
+"[[I]]'m not an expert in this, but it seems that [right[[-]]wing parties] have had some aspects 
+that may be anti[[-]]Semitic or racial ... My point is that over time it all gets kind of washed 
 out, right?" 
 And the tea party is using this as an example of the cronyism. General Electric and these 
 major corporations that are in bed with the federal government are not what we'd consider 
-free-enterprise capitalists. We're backers of entrepreneurial capitalists. They're not. 
-They're what we call corporatist. They want to have more and more monopolistic power 
+free[[-]]enterprise capitalists. We're backers of entrepreneurial capitalists. They're not. 
+They're what we call corporatist. They want [[To]] have more and more monopolistic power 
 and they're doing that kind of convergence with big government. And so the fight here — 
-and that's why the media's been very late to this party — but the fight you're seeing is 
+and that's why the media's been very late [[To]] this party — but the fight you're seeing is 
 between entrepreneur capitalism, and the Acton Institute is a tremendous supporter of, 
-and the people like the corporatists that are closer to the people like we think in Beijing 
-and Moscow than they are to the entrepreneurial capitalist spirit of the United States. 
-Harnwell: Thanks, Steve. I'm going to turn around now, as I'm sure we have some great 
-questions from the floor. Who has the first question then? 
+and the people like the corporatists that are closer [[To]] the people like we think in Beijing 
+and Moscow than they are [[To]] the entrepreneurial capitalist spirit of the United States. 
+Harnwell: Thanks, Steve. [[I]]'m going [[To]] turn around now, as [[I]]'m sure we have some great 
+questions [[From]] the floor. Who has the first question then? 
 HOUSE OVERSIGHT 029031 
-Bannon: First of all, Benjamin, I can tell you I could hardly recognize you, you're so 
+Bannon: First of all, Benjamin, [[I]] can tell you [[I]] could hardly recognize you, you're so 
 cleaned up you are for the conference. 
 [Laughter] 
-Questioner: Hello, my name is Deborah Lubov. I'm a Vatican correspondent for Zenit 
-news agency, for their English edition. I have some experience working in New York — I 
+Questioner: Hello, my name is Deborah Lubov. [[I]]'m a Vatican correspondent for Zenit 
+news agency, for their English edition. [[I]] have some experience working in New York — [[I]] 
 was working for PricewaterhouseCoopers auditing investment banks, one of which was 
-Goldman Sachs. And considering this conference is on poverty, I'm curious — from your 
+Goldman Sachs. And considering this conference is on poverty, [[I]]'m curious — [[From]] your 
 point of view especially, your experience in the investment banking world — what concrete 
-measures do you think they should be doing to combat, prevent this phenomenon? We 
+measures do you think they should be doing [[To]] combat, prevent this phenomenon? We 
 know that various sums of money are used in all sorts of ways and they do have different 
-initiatives, but in order to concretely counter this epidemic now, what are your thoughts? 
+initiatives, but in order [[To]] concretely counter this epidemic now, what are your thoughts? 
 "For Christians, and particularly for those who believe in the underpinnings of the 
-Judeo-Christian West, I don't believe that we should have a [financial] bailout." 
-Bannon: That's a great question. The 2008 crisis, I think the financial crisis — which, by 
-the way, I don't think we've come through — is really driven I believe by the greed, much 
+Judeo[[-]]Christian West, [[I]] don't believe that we should have a [financial] bailout." 
+Bannon: That's a great question. The 2008 crisis, [[I]] think the financial crisis — which, by 
+the way, [[I]] don't think we've come through — is really driven [[I]] believe by the greed, much 
 of it driven by the greed of the investment banks. My old firm, Goldman Sachs — 
-traditionally the best banks are leveraged 8:1. When we had the financial crisis in 2008, 
-the investment banks were leveraged 35:1. Those rules had specifically been changed by a 
+traditionally the best banks are leveraged 8:[[1]]. When we had the financial crisis in 2008, 
+the investment banks were leveraged 35:[[1]]. Those rules had specifically been changed by a 
 guy named Hank Paulson. He was secretary of Treasury. As chairman of Goldman Sachs, 
-he had gone to Washington years before and asked for those changes. That made the 
+he had gone [[To]] Washington years before and asked for those changes. That made the 
 banks not really investment banks, but made them hedge funds — and highly susceptible 
-to changes in liquidity. And so the crisis of 2008 was, quite frankly, really never recovered 
-from in the United States. It's one of the reasons last quarter you saw 2.9% negative 
+[[To]] changes in liquidity. And so the crisis of 2008 was, quite frankly, really never recovered 
+[[From]] in the United States. It's one of the reasons last quarter you saw 2.9% negative 
 growth in a quarter. So the United States economy is in very, very tough shape. 
 And one of the reasons is that we've never really gone and dug down and sorted through 
 the problems of 2008. Particularly the fact — think about it — not one criminal charge has 
-ever been brought to any bank executive associated with 2008 crisis. And in fact, it gets 
+ever been brought [[To]] any bank executive associated with 2008 crisis. And in fact, it gets 
 worse. No bonuses and none of their equity was taken. So part of the prime drivers of the 
-wealth that they took in the 15 years leading up to the crisis was not hit at all, and I think 
+wealth that they took in the 15 years leading up [[To]] the crisis was not hit at all, and [[I]] think 
 HOUSE OVERSIGHT 029032 
-that's one of the fuels of this populist revolt that we're seeing as the tea party. So I think 
+that's one of the fuels of this populist revolt that we're seeing as the tea party. So [[I]] think 
 there are many, many measures, particularly about getting the banks on better footing, 
-making them address all the liquid assets they have. I think you need a real clean-up of the 
+making them address all the liquid assets they have. [[I]] think you need a real clean[[-]]up of the 
 banks balance sheets. 
-In addition, I think you really need to go back and make banks do what they do: 
-Commercial banks lend money, and investment banks invest in entrepreneurs and to get 
-away from this trading — you know, the hedge fund securitization, which they've all 
+In addition, [[I]] think you really need [[To]] go back and make banks do what they do: 
+Commercial banks lend money, and investment banks invest in entrepreneurs and [[To]] get 
+away [[From]] this trading — you know, the hedge fund securitization, which they've all 
 become basically trading operations and securitizations and not put capital back and really 
-grow businesses and to grow the economy. So I think it's a whole area that just — and I 
+grow businesses and [[To]] grow the economy. So [[I]] think it's a whole area that just — and [[I]] 
 will tell you, the underpinning of this populist revolt is the financial crisis of 2008. That 
 revolt, the way that it was dealt with, the way that the people who ran the banks and ran 
 the hedge funds have never really been held accountable for what they did, has fueled 
 much of the anger in the tea party movement in the United States. 
 Questioner: Thank you. 
 Bannon: Great question. 
-Questioner: Hello, Mr. Bannon. I'm Mario Fantini, a Vermonter living in Vienna, 
+Questioner: Hello, Mr. Bannon. [[I]]'m Mario Fantini, a Vermonter living in Vienna, 
 Austria. You began describing some of the trends you're seeing worldwide, very dangerous 
-trends, worry trends. Another movement that I've been seeing grow and spread in Europe, 
-unfortunately, is what can only be described as tribalist or neo-nativist movement — they 
-call themselves Identitarians. These are mostly young, working-class, populist groups, and 
-they're teaching self-defense classes, but also they are arguing against — and quite 
-effectively, I might add — against capitalism and global financial institutions, etc. How do 
-we counteract this stuff? Because they're appealing to a lot of young people at a very 
+trends, worry trends. Another movement that [[I]]'ve been seeing grow and spread in Europe, 
+unfortunately, is what can only be described as tribalist or neo[[-]]nativist movement — they 
+call themselves Identitarians. These are mostly young, working[[-]]class, populist groups, and 
+they're teaching self[[-]]defense classes, but also they are arguing against — and quite 
+effectively, [[I]] might add — against capitalism and global financial institutions, etc. How do 
+we counteract this stuff? Because they're appealing [[To]] a lot of young people at a very 
 visceral level, especially with the ethnic and racial stuff. 
-Bannon: I didn't hear the whole question, about the tribalist? 
-"One of the committees in Congress said to the Justice Department, 35 [bank] executives, 
-I believe, that they should have criminal indictments against — not one of those has ever 
+Bannon: [[I]] didn't hear the whole question, about the tribalist? 
+"One of the committees in Congress said [[To]] the Justice Department, 35 [bank] executives, 
+[[I]] believe, that they should have criminal indictments against — not one of those has ever 
 been followed up on." 
 HOUSE OVERSIGHT 029033 
 Questioner: Very simply put, there's a growing movement among young people here in 
 Europe, in France and in Austria and elsewhere, and they're arguing very effectively 
-against Wall Street institutions and they're also appealing to people on an ethnic and racial 
-level. And I was just wondering what you would recommend to counteract these 
+against Wall Street institutions and they're also appealing [[To]] people on an ethnic and racial 
+level. And [[I]] was just wondering what you would recommend [[To]] counteract these 
 movements, which are growing. 
 Bannon: One of the reasons that you can understand how they're being fueled is that 
-they're not seeing the benefits of capitalism. I mean particularly — and I think it's 
+they're not seeing the benefits of capitalism. [[I]] mean particularly — and [[I]] think it's 
 particularly more advanced in Europe than it is in the United States, but in the United 
 States it's getting pretty advanced — is that when you have this kind of crony capitalism, 
 you have a different set of rules for the people that make the rules. It's this partnership of 
-big government and corporatists. I think it starts to fuel, particularly as you start to see 
+big government and corporatists. [[I]] think it starts [[To]] fuel, particularly as you start [[To]] see 
 negative job creation. If you go back, in fact, and look at the United States' GDP, you look 
 at a bunch of Europe. If you take out government spending, you know, we've had negative 
 growth on a real basis for over a decade. 
-And that all trickles down to the man in the street. If you look at people's lives, and 
+And that all trickles down [[To]] the man in the street. If you look at people's lives, and 
 particularly millennials, look at people under 30 — people under 30, there's 50% really 
 under employment of people in the United States, which is probably the most advanced 
 economy in the West, and it gets worse in Europe. 
-I think in Spain it's something like 50 or 6o% of the youth under 30 are underemployed. 
-And that means the decade of their twenties, which is where you have to learn a skill, 
-where you have to learn a craft, where you really start to get comfortable in your 
-profession, you're taking that away from the entire generation. That's only going to fuel 
-tribalism, that's only going to fuel [unintelligible]... That's why to me, it's incumbent upon 
-freedom-loving people to make sure that we sort out these governments and make sure 
+[[I]] think in Spain it's something like 50 or 6o% of the youth under 30 are underemployed. 
+And that means the decade of their twenties, which is where you have [[To]] learn a skill, 
+where you have [[To]] learn a craft, where you really start [[To]] get comfortable in your 
+profession, you're taking that away [[From]] the entire generation. That's only going [[To]] fuel 
+tribalism, that's only going [[To]] fuel [unintelligible]... That's why [[To]] me, it's incumbent upon 
+freedom[[-]]loving people [[To]] make sure that we sort out these governments and make sure 
 that we sort out particularly this crony capitalism so that the benefits become more of this 
-entrepreneurial spirit and that can flow back to working-class and middle-class people. 
-Because if not, we're going to pay a huge price for this. You can already start to see it. 
-Questioner: I have a question, because you worked on Wall Street. What is the opinion 
-there on whether they think bank bailouts are justified? Is there a Christian-centered 
+entrepreneurial spirit and that can flow back [[To]] working[[-]]class and middle[[-]]class people. 
+Because if not, we're going [[To]] pay a huge price for this. You can already start [[To]] see it. 
+Questioner: [[I]] have a question, because you worked on Wall Street. What is the opinion 
+there on whether they think bank bailouts are justified? Is there a Christian[[-]]centered 
 [unintelligible] that they think should be bailed out? The crisis starts earlier than 2008. 
 What was the precedent then? What was the feeling on Wall Street when they bailed out 
 the banks? How should Christians feel about advocating or being against that? 
 HOUSE OVERSIGHT 029034 
-Bannon: I think one is about responsibility. For Christians, and particularly for those 
-who believe in the underpinnings of the Judeo-Christian West, I don't believe that we 
-should have a bailout. I think the bailouts in 2008 were wrong. And I think, you look in 
+Bannon: [[I]] think one is about responsibility. For Christians, and particularly for those 
+who believe in the underpinnings of the Judeo[[-]]Christian West, [[I]] don't believe that we 
+should have a bailout. [[I]] think the bailouts in 2008 were wrong. And [[I]] think, you look in 
 hindsight, it was a lot of misinformation that was presented about the bailouts of the 
 banks in the West. 
-And look at the [unintelligible] it. Middle-class taxpayers, people that are working-class 
+And look at the [unintelligible] it. Middle[[-]]class taxpayers, people that are working[[-]]class 
 people, right, people making incomes under $50,000 and $6o,000, it was the burden of 
 those taxpayers, right, that bailed out the elites. And let's think about it for a second. 
-Here's how capitalism metastasized, is that all the burdens put on the working-class 
+Here's how capitalism metastasized, is that all the burdens put on the working[[-]]class 
 people who get none of the upside. All of the upside goes to the crony capitalists. 
 The bailouts were absolutely outrageous, and here's why: It bailed out a group of 
 shareholders and executives who were specifically accountable. The shareholders were 

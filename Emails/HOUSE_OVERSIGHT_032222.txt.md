@@ -5,4 +5,4 @@ receiver: "[[Kathy Ruemmler]]"
 date: 
 ---
 
-Trump is living proof of the adage that it is better to be lucky than smart.
+Trump is living proof of the adage that it is better [[To]] be lucky than smart.

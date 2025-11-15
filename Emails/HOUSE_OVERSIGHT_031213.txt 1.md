@@ -6,27 +6,27 @@ date: "2012-08-20 14:32:00"
 ---
 
 who is you r wife choice this year? 
-On Sat, Aug 18, 2012 at 12:11 PM, Barbro C Ehnbom 
-Dear Jeffrey, 
+On Sat, Aug 18, 2012 at 12:11 PM, [[Barbro C Ehnbom]] 
+Dear [[Jeffrey]], 
 _wrote: 
-I am sorry I did not call back Yesterday-I was exhausted from a crazy week and fell asleep 
-as soon as I came home! Anyway, here is the full program and attendee list attached, this 
-is the Globalization Summit I invited Bill Clinton to when I met him in Stockholm last Summer-
-But he is a bit busy I gather! 
-Anyway, hope got hold of you re search service? Also, I did see your mail 
-about possibly coming here end of September-however, I am supposedly arranging a fund-
+[[I]] am sorry [[I]] did not call back Yesterday-[[I]] was exhausted [[From]] a crazy week and fell asleep 
+as soon as [[I]] came home! Anyway, here is the full program and attendee list attached, this 
+is the Globalization Summit [[I]] invited Bill Clinton [[To]] when [[I]] met him in Stockholm last Summer-
+But he is a bit busy [[I]] gather! 
+Anyway, hope got hold of you re search service? Also, [[I]] did see your mail 
+about possibly coming here end of September[[-]]however, [[I]] am supposedly arranging a fund-
 raiser for Congress Woman Diana deGette of Colorado on Sept 27 in NYC; she is the only one with a scientific agenda 
-and she is just super-if anything I am hoping on your involvement? 
-How about going to Stockholm mid or end november..albeit a bit dark and maybe cold..? 
+and she is just super[[-]]if anything [[I]] am hoping on your involvement? 
+How about going [[To]] Stockholm mid or end november..albeit a bit dark and maybe cold..? 
 Let me know what you think! 
-Also, I just heard from my friend Jeff Kriendler in Miami and guess who was just walking in there -our friend Goldsamt! 
+Also, [[I]] just heard [[From]] my friend Jeff Kriendler in [[Miami]] and guess who was just walking in there -our friend Goldsamt! 
 First prize for perseverance! 
-Also, Sofia and the prince is on every magazine here, I think it is wonderful! 
+Also, Sofia and the prince is on every magazine here, [[I]] think it is wonderful! 
 Marcus has two big concerts in Stockholm this coming week. Me - SALSS! 
 KRAM 
 BE 
 Barbro C. Ehnbom 
-Sent from iPad 
+[[Sent]] [[From]] iPad 
 Vidarebefordrat brev: 
 Fran:_____________________________________________ 
 Datum: August 18, 2012 8:44:29 AM GMT+02:00 

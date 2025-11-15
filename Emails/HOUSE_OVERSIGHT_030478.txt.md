@@ -5,4 +5,4 @@ receiver: "[[Subject]]"
 date: 
 ---
 
-I see you released a statement. Good move. You should tell people that all this stuff happened years ago.
+[[I]] see you released a statement. Good move. You should tell people that all this stuff happened years ago.

@@ -6,7 +6,7 @@ date: "2017-12-01 16:34:09"
 ---
 
 should be interesting_ 
-Richard Kahn 
+[[Richard Kahn]] 
 HBRK Associates Inc. 
 575 Lexington Avenue 4th Floor 
 New York, NY 10022 

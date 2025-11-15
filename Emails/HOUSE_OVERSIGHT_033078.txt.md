@@ -6,6 +6,6 @@ date: "2018-03-24 12:26:50"
 ---
 
 but -accurate 
-On Sat, Mar 24, 2018 at 8:26 AM, Kathy Ruemmler < 
+On Sat, Mar 24, 2018 at 8:26 AM, [[Kathy]] [[Ruemmler]] < 
 Not confidence inspiring 
-> wrote:
+> [[Wrote]]:

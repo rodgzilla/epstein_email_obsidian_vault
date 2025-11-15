@@ -5,7 +5,7 @@ receiver: "[[Weingarten; Reid]]"
 date: "2018-03-24 08:06:00"
 ---
 
-yes 730? 
+[[Yes]] 730? 
 HOUSE OVERSIGHT 032745 
-On Sat, Mar 24, 2018 at 11:02 AM, Weingarten, Reid 
-Am I seeing you tomorrow morning?
+On Sat, Mar 24, 2018 at 11:02 AM, [[Weingarten]], [[Reid]] 
+Am [[I]] seeing you tomorrow morning?

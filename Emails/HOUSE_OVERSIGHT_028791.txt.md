@@ -163,75 +163,75 @@ has hit the fan."
 The Democratic Party is electing a known criminal, and they don't care, 
 as long as it's their criminal. They just assume all politicians are 
 criminal, and the really good ones get their districts what they need. 
-Would anyone let Harry Reid babysit their children? The Republican 
+Would anyone let Harry [[Reid]] babysit their children? The Republican 
 Party is electing anybody who is not a politician. Donald Trump just 
-happens to be the best known, "anybody" who is running. 
-— Wayde L. 
+happens [[To]] be the best known, "anybody" who is running. 
+— Wayde [[L]]. 
 HOUSE OVERSIGHT 028797 
-All I can say about Bill's message on Monday is: "Amen, brother! Amen!" 
+All [[I]] can say about Bill's message on Monday is: "Amen, brother! Amen!" 
 He hit every nail right on the head. 
-To those self-deluding worthies who think that a Donald Trump 
-presidency will solve all of America's problems I say, "Get your heads 
+[[To]] those self[[-]]deluding worthies who think that a Donald Trump 
+presidency will solve all of America's problems [[I]] say, "Get your heads 
 out of your collective a***s, because it ain't gonna happen." 
 Trump will continue the policies (if we can laughably call them such) of 
 the Deep State... with a dash of Adolph Hitler thrown in for good 
 measure. Clinton will be no better, if not worse. 
-I'm with Bill — a vote for the lesser of two evils is still voting for evil. 
-However, unlike him, I will vote, but for a third-party candidate who 
+[[I]]'m with Bill — a vote for the lesser of two evils is still voting for evil. 
+However, unlike him, [[I]] will vote, but for a third[[-]]party candidate who 
 doesn't have a snowball's chance of winning. A "wasted" vote is better 
 than a vote for Trump or Hillary. 
 — Dale A. 
-I think you are correct in your assessment of the Deep State. I disagree 
-in how to deal with it. 
-It seems easy for the rich or the poor to walk away and state it doesn't 
+[[I]] think you are correct in your assessment of the Deep State. [[I]] disagree 
+in how [[To]] deal with it. 
+It seems easy for the rich or the poor [[To]] walk away and state it doesn't 
 matter. The poor because they do not have a choice; the rich because 
-they do. For those of us in the middle we need to deal with it, lest we 
+they do. For those of us in the middle we need [[To]] deal with it, lest we 
 end up in the poor camp. For me, a decision that includes a less bad 
 scenario is still a decision worth pursuing. 
 — Rudy R. 
 In Case You Missed It... 
-The third part of Doug Casey's "virtual workshop" on how to turn crises into 
+The third part of Doug Casey's "virtual workshop" on how [[To]] turn crises into 
 wildly profitable investments goes live today. 
 HOUSE OVERSIGHT 028798 
 In it, Doug pulls back the curtain on his shocking forecast for America in 
-2016. And how he believes you could set yourself up to profit from it in a big 
+2016. And how he believes you could set yourself up [[To]] profit [[From]] it in a big 
 way... with just one decisive move. 
-Go here to reserve your spot. 
+Go here [[To]] reserve your spot. 
 E 
-Bonner & Partners I About Bill I The Archives I FAQ  
+Bonner & Partners [[I]] About Bill [[I]] The Archives [[I]] FAQ  
 LIKE BILL'S DIARY? 
 Republish our articles on your website or blog for free. Learn How  
 Have feedback? ::ontact Us  
-This e-mail was sent to because you subscribed to 
-this service. It's not our intention to send e-mail to anyone who doesn't want 
+This e[[-]]mail was [[Sent]] [[To]] because you subscribed [[To]] 
+this service. It's not our intention [[To]] send e[[-]]mail [[To]] anyone who doesn't want 
 it. 
-To cancel Bill Bonner's Diary, 
-To cancel by mail or for any other subscription issues, write us at: 
+[[To]] cancel Bill Bonner's Diary, 
+[[To]] cancel by mail or for any other subscription issues, write us at: 
 Bill Bonner's Diary, 402 West Atlantic Ave., Suite 66, Delray Beach, FL 
 33444011, USA 
-To contact us, call , Mon-Fri: 9am-5pm or email 
-feedbackabonnerandpartners.com  
-Having trouble getting your e-mails? Add us to your address book. Get 
+[[To]] contact us, call , Mon[[-]]Fri: 9am[[-]]5pm or email 
+feedbackabonnerandpartners.[[Com]]  
+Having trouble getting your e[[-]]mails? Add us [[To]] your address book. Get 
 Instructions here... 
 Copyright 2016 Bonner & Partners and Bill Bonners' Diary, 402 West Atlantic 
 Ave., Suite 66, Delray Beach, FL 33444011, USA. All rights reserved. No part 
 of this report may be reproduced or placed on any electronic medium without 
-written permission from the publisher. Information contained herein is 
-obtained from sources believed to be reliable, but its accuracy cannot be 
+written permission [[From]] the publisher. Information contained herein is 
+obtained [[From]] sources believed [[To]] be reliable, but its accuracy cannot be 
 guaranteed. Bill Bonner's Diary or its editors and publications do not advocate 
 the purchase or sale of any security or investment. Investments recommended 
 in this publication should be made only after consulting with your investment 
 advisor and only after reviewing the prospectus or financial statements of the 
-company in question. Bill Bonner's Diary expressly forbids its writers from 
-having a financial interest in any security that they recommend to their 
+company in question. Bill Bonner's Diary expressly forbids its writers [[From]] 
+having a financial interest in any security that they recommend [[To]] their 
 readers. Furthermore, all other employees and agents of Bill Bonner's Diary 
 and its affiliate companies must wait 24 hours before following an initial 
 recommendation published on the Internet, or 72 hours after a printed 
 publication is mailed. 
 HOUSE OVERSIGHT 028799 
-Jeffrey Kogan 
+[[Jeffrey]] Kogan 
 Kogan Realty Group 
-155 E 55th St., Ste 6-D 
+155 E 55th St., Ste 6[[-]]D 
 New York, NY 10022  
 TEL: 
 FAX:________________ 

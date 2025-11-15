@@ -26,10 +26,10 @@ Phone department
 SEB Customer Center 
 Switchboard 
 Fax 
-Postal Address: SEB, Non-Resident, GOH 460, SE-405 04 Goteborg 
+Postal Address: SEB, Non[[-]]Resident, GOH 460, SE[[-]]405 04 Goteborg 
 Office Address: Ostra Hamngatan 24 
-E-mail: edyta.wynberg@seb.se  
-E-mail department:KRNonResGbgseb.se  
+E[[-]]mail: [[Edyta.wynberg]]@seb.se  
+E[[-]]mail department:KRNonResGbgseb.se  
 www.seb.se  
-Invoice address: SEB Accounts Payable, SE-106 40 Stockholm 
-P Please consider the environment before printing this e-mail
+Invoice address: SEB Accounts Payable, SE[[-]]106 40 Stockholm 
+P Please consider the environment before printing this e[[-]]mail

@@ -5,4 +5,4 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2017-12-09 07:00:51"
 ---
 
-i forget to ask.. is there any new update about the saudi project that i sent you??
+[[I]] forget [[To]] ask.. is there any new update about the saudi project that [[I]] [[Sent]] you??

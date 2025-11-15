@@ -9,43 +9,43 @@ John Humphrys: The Terrier of Today, in conversation with Justin Webb
 View in browser 
 7-, 
 _Rye. 
-FAT-Z-1 
+FAT[[-]]Z-[[1]] 
 John Humphrys: 
 The Terrier of Today 
 HOUSE OVERSIGHT 030445 
-ADD TO CALENDAR 
+ADD [[To]] CALENDAR 
 WEDNESDAY 9TH OCTOBER, 7PM 
 EMMANUEL CENTRE 
 Featuring John Humphrys and Justin Webb 
 BUY TICKETS 
-'I'm not sure I'd like me if I was listening to me.' — John Humphrys 
+'[[I]]'m not sure [[I]]'d like me if [[I]] was listening [[To]] me.' — John Humphrys 
 HOUSE OVERSIGHT 030446 
 John Humphrys is the Radio 4 Today programme presenter, whose forensic and sometimes 
 aggressive interviews with figures in authority inspire love and loathing in equal measure. The 
-Observer's television critic once wrote that if he ever found himself sitting next to Hum phrys at a 
+Observer's television critic once [[Wrote]] that if he ever found himself sitting next [[To]] Hum phrys at a 
 dinner party he would probably drive a fork through his hand. The Tory politician Jonathan 
 Aitken accused him of 'poisoning the well of democratic debate', a comment which prompted an 
 outburst of support for Humphrys, with the Daily Mail describing him as one of the most brilliant 
 journalists in the country'. 
-This autumn, as Humphrys steps down after 32 years at Today and publishes a long-awaited 
-memoir, he comes to the Intelligence Squared stage to give an exclusive, behind-the-scenes 
+This autumn, as Humphrys steps down after 32 years at Today and publishes a long[[-]]awaited 
+memoir, he comes [[To]] the [[Intelligence Squared]] stage [[To]] give an exclusive, behind[[-]]the[[-]]scenes 
 account of his extraordinary career. 
 Turning the tables on Humphrys and pitching the questions will be his Today colleague Justin 
 Webb. Humphrys will recount the momentous episodes of his career, such as his interview with 
 BBC correspondent Andrew Gilligan in 2003. Gilligan claimed that the government had 
-deliberately 'sexed up' the dossier on the threat posed by Saddam Hussein in order to justify 
-the Iraq War. A chain of events ensued, including the suicide of the dossier's source, Dr David 
-Kelly, severe damage to Tony Blair's reputation and the Hutton and Chiloot inquiries into the 
-war. And then there was the time Humphrys helped to get his own boss fired. His tough 
+deliberately 'sexed up' the dossier on the threat posed by Saddam Hussein in order [[To]] justify 
+the Iraq War. A chain of events ensued, including the suicide of the dossier's source, Dr [[David]] 
+Kelly, severe damage [[To]] Tony Blair's reputation and the Hutton and Chiloot inquiries into the 
+war. And then there was the time Humphrys helped [[To]] get his own boss fired. His tough 
 interview with the BBC Director General George Entwistle, days after the BBC had made false 
-child abuse allegations against Lord McAlpine, lead to Entwistle's resignation after a mere 53 
+child abuse allegations against Lord McAlpine, lead [[To]] Entwistle's resignation after a mere 53 
 days in the job. 
 Join us on October 9 and hear Humphrys' previously untold stories about politicians, celebrities 
 and the BBC, and give his trenchant views on the role of the media in politics and the health of 
 our political system. 
 HOUSE OVERSIGHT 030447 
 John Humphrys 
-Award-winning journalist who has been one of the presenters of 
+Award[[-]]winning journalist who has been one of the presenters of 
 BBC Radio 4's flagship news and current affairs programme Today 
 since January 1987. During his career with the BBC, he has also 
 worked as a foreign correspondent in both America and Africa, as 
@@ -64,10 +64,10 @@ Radio Times and reviews books for the Sunday Times.
 HOUSE OVERSIGHT 030449 
 HOUSE OVERSIGHT 030450 
 The Daily: The Rise of Nationalism Across the Globe 
-In this week's podcast, we hosted a live conversation from "The Daily", The New York 
+In this week's podcast, we hosted a live conversation [[From]] "The Daily", The New York 
 Times' flagship podcast. In an event in partnership with The New York Times, we were 
-joined by the podcast's host Michael Barbaro, as well as Berlin Bureau Chief Katrin 
-Bennhold, London-based International Correspondent Ellen Barry, Executive Producer 
+joined by the podcast's host [[Michael]] Barbaro, as well as Berlin Bureau Chief Katrin 
+Bennhold, London[[-]]based International Correspondent Ellen Barry, Executive Producer 
 Theo Balcomb and Producer Clare Toeniskoetter for a conversation about the 
 implications of the nationalist undercurrent currently sweeping across Europe. 
 LISTEN NOW 
@@ -76,8 +76,8 @@ Share
 Tweet 
 Forward 
 HOUSE OVERSIGHT 030452 
-Intelligence Squared is proudly supported by its media partner: 
-This email was sent to jeevacationagmail.com  
-why did I get this? unsubscribe from this list update subscription preferences  
-Intelligence Squared (UK) Ltd • Newcombe House • 45 Notting Hill Gate, London W11 3LQ • United Kingdom 
+[[Intelligence Squared]] is proudly supported by its media partner: 
+This email was [[Sent]] [[To]] [[Jeevacationagmail.com]]  
+why did [[I]] get this? unsubscribe [[From]] this list update subscription preferences  
+[[Intelligence Squared]] (UK) Ltd • Newcombe House • 45 Notting [[Hill]] Gate, London W11 3LQ • United Kingdom 
 HOUSE OVERSIGHT 030453

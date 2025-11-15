@@ -6,4 +6,4 @@ date: "2019-03-17 16:24:05"
 ---
 
 That is true. 
-Interesting. I take a serious note from someone as a deed not words.
+Interesting. [[I]] take a serious note [[From]] someone as a deed not words.

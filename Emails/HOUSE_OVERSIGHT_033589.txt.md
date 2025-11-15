@@ -5,9 +5,9 @@ receiver: "[[Subject]]"
 date: 
 ---
 
-Martin G. Weinberg 
+[[Martin G. Weinberg]] 
 3/18/2016 4:30:13 PM 
-jeffrey E. [jeeyacation@gmail.com]; Kathy Ruemmler 
-ATTORNEY-CLIENT PRIVILEGE 
-Darren Indyke 
+[[Jeffrey]] E. [[[jeeyacation@gmail.com]]]; [[Kathy]] [[Ruemmler]] 
+ATTORNEY[[-]]CLIENT PRIVILEGE 
+[[Darren]] [[Indyke]] 
 Privileged - Redacted

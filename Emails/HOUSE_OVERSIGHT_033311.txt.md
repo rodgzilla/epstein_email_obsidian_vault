@@ -7,7 +7,7 @@ date:
 
 Election Polls 1President Polls 1State Polls Senate Polls 1House Polls Governor Polls lApproval Polls 
 Wednesday, September 14 
-Race/Topic (Click to Sort) Poll 
+Race/Topic (Click [[To]] Sort) Poll 
 General Election: Trump vs. Clinton LA Times/USC Tracking 
 General Election: Trump vs. Clinton vs. Reuters/Ipsos  
 Johnson vs. Stein 
@@ -66,7 +66,7 @@ Johnson 9, Stein 4
 Trump 48, Clinton 36,  
 Johnson 8, Stein 2  
 Trump 53, Clinton 38,  
-Johnson 3, Stein 1  
+Johnson 3, Stein [[1]]  
 Moran 50, Wiesner 34 
 Poliquin 50, Cain 45  
 Pingree 57, Holbrook 37 
@@ -79,7 +79,7 @@ Track 65
 Spread 
 Trump +5 
 Tie 
-Clinton +1 
+Clinton +[[1]] 
 Trump +5 
 Trump +5 
 Clinton +3 

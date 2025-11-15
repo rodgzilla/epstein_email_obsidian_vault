@@ -5,81 +5,81 @@ receiver: "[[Dunlavey]]"
 date: "2016-08-11 19:41:00"
 ---
 
-The LA Times appears to be the first media to report on the verdict. Latham references are highlighted: 
+The LA Times appears [[To]] be the first media [[To]] report on the verdict. Latham references are highlighted: 
 BUSINESS 
 Federal jury decides Middle East bank did not defraud Orange County entrepreneur<http://fw.to/aXv1QHI> 
-•>>, Ruemmler, Kathy (DC) 
+•>>, [[Ruemmler]], [[Kathy]] (DC) 
 [Farooq Bajwa] 
 Farooq Bajwa 
 By Andrew Khouri 
 August 11, 2016 
 HOUSE OVERSIGHT 030098 
 A federal jury decided Thursday that one of the Middle East's most prominent banks did not commit fraud and 
-steal technology from an Irvine firm that sued it for half a billion dollars in damages after their partnership 
+steal technology [[From]] an Irvine firm that sued it for half a billion dollars in damages after their partnership 
 collapsed. 
 Orange County company InfoSpan had alleged that Emirates NBD ended a partnership for a mobile payment 
-system because it didn't want to share revenue and stole InfoSpan's technology to launch its own service. 
-The Dubai-based bank, in turn, denied it stole or ever used InfoSpan's technology. It argued that it cancelled the 
+system because it didn't want [[To]] share revenue and stole InfoSpan's technology [[To]] launch its own service. 
+The Dubai[[-]]based bank, in turn, denied it stole or ever used InfoSpan's technology. It argued that it cancelled the 
 partnership because InfoSpan couldn't produce a working product and misled it into thinking it was an 
-established company, not one with little to no track record. 
+established company, not one with little [[To]] no track record. 
 After deliberating for a day, the jury unanimously decided that InfoSpan did not prove its case of fraud and theft 
 of trade secrets. 
-InfoSpan had asked for $540 million in damages. An attorney for InfoSpan declined to comment on the 
+InfoSpan had asked for $540 million in damages. An attorney for InfoSpan declined [[To]] comment on the 
 possibility of an appeal. 
-The verdict capped a two-week trial that involved dueling accusations of fraud levied by high-profile attorneys 
-on both sides, including the former White House counsel to President Obama. 
-At the center of the high-stakes battle was San Juan Capistrano resident and entrepreneur Farooq Bajwa and a 
-mobile payment system that he said would allow migrant workers in the Middle East to send remittances back 
+The verdict capped a two[[-]]week trial that involved dueling accusations of fraud levied by high[[-]]profile attorneys 
+on both sides, including the former White House counsel [[To]] President Obama. 
+At the center of the high[[-]]stakes battle was San Juan Capistrano resident and entrepreneur Farooq Bajwa and a 
+mobile payment system that he said would allow migrant workers in the Middle East [[To]] send remittances back 
 home through text messages. 
-Bajwa contended that InfoSpan, with support from outside investors, spent $87 million developing the business 
+Bajwa contended that InfoSpan, with support [[From]] outside investors, spent $87 million developing the business 
 and technology. 
-To launch the system, known as SpanCash, Bajwa partnered in 2007 with Emirates Bank, which is controlled 
+[[To]] launch the system, known as SpanCash, Bajwa partnered in 2007 with Emirates Bank, which is controlled 
 by the United Arab Emirates' sovereign wealth fund. 
 It seemed the ideal collaboration for the Pakistani immigrant, who earned millions operating another Irvine 
 company that manufactured computer components in the 1980s and 1990s 
-The Gulf States rely heavily on migrants to work construction and other low-wage jobs, offering a ready-made 
-market for SpanCash. InfoSpan aimed to allow migrants to transfer money back home far more cheaply than 
-Western Union or hawala, a traditional Middle Eastern broker-to-broker money transfer system. 
-A study from McKinsey & Co., cited in court records, projected annual revenue of $3.5 billion by the deal's 
+The Gulf States rely heavily on migrants [[To]] work construction and other low[[-]]wage jobs, offering a ready[[-]]made 
+market for SpanCash. InfoSpan aimed [[To]] allow migrants [[To]] transfer money back home far more cheaply than 
+Western Union or hawala, a traditional Middle Eastern broker-[[To]]-broker money transfer system. 
+A study [[From]] McKinsey & Co., cited in court records, projected annual revenue of $3.5 billion by the deal's 
 fifth year, with InfoSpan receiving more than $2.8 billion in fees. 
 But the relationship between InfoSpan and Emirates Bank soured and the bank cancelled the deal in 2009. 
 A few days later, Emirates filed a criminal complaint in Dubai against Bajwa and a partner alleging that they 
 defrauded the bank and misrepresented InfoSpan as an established business with a working technology. 
 Two years later, InfoSpan sued in U.S. District Court in Santa Ana and alleged that its technology was working 
-and that it delivered its source code to the bank on servers. Emirates ended the deal, InfoSpan said, to launch its 
+and that it delivered its source code [[To]] the bank on servers. Emirates ended the deal, InfoSpan said, [[To]] launch its 
 own mobile payment system after stealing InfoSpan's technology. 
 In court, an attorney for InfoSpan argued that Emirates torpedoed the InfoSpan relationship because it abhorred 
-how much money it would have to share with the Irvine firm. 
+how much money it would have [[To]] share with the Irvine firm. 
 "They wanted SpanCash and they wanted the money," attorney William A. Isaacson said in his closing 
 arguments Wednesday. 
-Isaacson — a partner with powerhouse law firm Boies Schiller & Flexner, chaired by high-profile litigator David 
-Boies — argued that the bank resorted to "pure extortion" in an attempt to get its way. 
-As a result of the bank's criminal complaint, InfoSpan alleged Bajwa's partner, Larry Scudder, was detained at 
-the Dubai International Airport and taken to a cell where he was locked in with 30 other men for 19 hours until 
+Isaacson — a partner with powerhouse law firm Boies Schiller & Flexner, chaired by high[[-]]profile litigator [[David]] 
+Boies — argued that the bank resorted [[To]] "pure extortion" in an attempt [[To]] get its way. 
+As a result of the bank's criminal complaint, InfoSpan alleged Bajwa's partner, [[Larry]] Scudder, was detained at 
+the Dubai International Airport and taken [[To]] a cell where he was locked in with 30 other men for 19 hours until 
 he secured his release by turning over his passport. 
-According to the lawsuit, Bajwa tried to resolve the situation but was told Scudder's passport would be released 
-and he could leave the country only if InfoSpan gave up ownership and control of SpanCash to the bank. 
+According [[To]] the lawsuit, Bajwa tried [[To]] resolve the situation but was told Scudder's passport would be released 
+and he could leave the country only if InfoSpan gave up ownership and control of SpanCash [[To]] the bank. 
 Six months later, the bank withdrew the fraud accusations and Scudder got his passport back, but SpanCash's 
 reputation was tarnished and it collapsed, Bajwa previously told The Times. 
 The bank disputed that it acquired InfoSpan's source code or used it at any time. 
-Former White House counsel and an attorney for the bank, Kathryn Ruemmler, said that Emirates never would 
-have acquired source code in a joint-partnership deal like the one reached with InfoSpan. She said such 
-technology would instead be held by a third-party escrow company for the length of the partnership. 
+Former White House counsel and an attorney for the bank, [[Kathryn]] [[Ruemmler]], said that Emirates never would 
+have acquired source code in a joint[[-]]partnership deal like the one reached with InfoSpan. She said such 
+technology would instead be held by a third[[-]]party escrow company for the length of the partnership. 
 In her closing arguments, the partner with global firm Latham & Watkins told the jury that Bajwa and InfoSpan 
 HOUSE OVERSIGHT 030099 
-sold the bank a "bill of goods," arguing that despite promises to Emirates, the technology never worked and 
+sold the bank a "bill of goods," arguing that despite promises [[To]] Emirates, the technology never worked and 
 InfoSpan wasn't as big a company as it claimed. 
-The bank cancelled the deal and filed a criminal complaint, not as a form of extortion but simply to regain the 
-bank's money after it was misled and doubts grew about the character of InfoSpan's employees, Ruemmler told 
+The bank cancelled the deal and filed a criminal complaint, not as a form of extortion but simply [[To]] regain the 
+bank's money after it was misled and doubts grew about the character of InfoSpan's employees, [[Ruemmler]] told 
 the jury. 
 "They concluded, definitively, that they had been defrauded," she said. 
 Lubna Qassim, group general counsel for Emirates Bank, said in a statement after the verdict that "Emirates 
-Bank is gratified by today's decision and the opportunity to receive a fair trial in U.S. courts." 
+Bank is gratified by today's decision and the opportunity [[To]] receive a fair trial in U.S. courts." 
 Bajwa said the trial has taken a toll on him and he doesn't know his next steps. 
-"I am just beat up," he said. 
-Phil Hirschkorn contributed to this report. 
+"[[I]] am just beat up," he said. 
+Phil Hirschkorn contributed [[To]] this report. 
 Copyright 0 2016, Los Angeles Times<http://www.latimes.com/> 
-Frank Pizzurro 
+Frank [[Pizzurro]] 
 Public Relations Senior Manager 
 LATHAM & WATKINS LLP 
-355 South Grand Avenue 1Los Angeles, CA 90071-1560
+355 South Grand Avenue 1Los Angeles, CA 90071[[-]]1560

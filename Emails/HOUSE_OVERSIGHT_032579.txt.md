@@ -5,4 +5,4 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2017-09-08 21:48:25"
 ---
 
-tamem just called mbs .. he want to sit and talk .. breakthrough
+tamem just called mbs .. he want [[To]] sit and talk .. breakthrough

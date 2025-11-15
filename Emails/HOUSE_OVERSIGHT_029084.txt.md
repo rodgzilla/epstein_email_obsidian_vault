@@ -6,4 +6,4 @@ date: "2016-12-12 18:26:29"
 ---
 
 Any ideas? 
-Begin forwarded message:
+Begin [[Forwarded Message]]:

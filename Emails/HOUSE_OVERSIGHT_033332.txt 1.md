@@ -5,6 +5,6 @@ receiver: "[[Double Standard]]"
 date: "2018-11-28 13:29:35"
 ---
 
-DOUBLE STANDARD 
-Trump Labor Sec Helped 'Contain' Scandal in Epstein Deal 
+[[Double Standard]] 
+Trump Labor Sec Helped 'Contain' Scandal in [[Epstein]] Deal 
 HOUSE OVERSIGHT 033332

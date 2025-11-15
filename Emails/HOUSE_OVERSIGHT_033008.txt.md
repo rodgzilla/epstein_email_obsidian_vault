@@ -6,5 +6,5 @@ date: "2017-06-13 01:32:37"
 ---
 
 However not firing him might be suicide 
-On Mon, Jun 12, 2017 at 7:25 PM Kathy Ruemmler < > wrote: 
-Maybe Trump wants to get impeached. Going after Mueller is declaring holy war.
+On Mon, Jun 12, 2017 at 7:25 PM [[Kathy]] [[Ruemmler]] < > [[Wrote]]: 
+Maybe Trump wants [[To]] get impeached. Going after Mueller is declaring holy war.

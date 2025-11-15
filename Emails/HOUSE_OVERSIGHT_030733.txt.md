@@ -6,4 +6,4 @@ date: "2018-07-21 11:40:00"
 ---
 
 So epic---world coming our way 
-Sent via BlackBerry by AT&T
+[[Sent]] [[Via]] BlackBerry by AT&T

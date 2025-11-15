@@ -5,4 +5,4 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2016-12-25 17:46:20"
 ---
 
-Hope Santa (swim trunks donned), reindeer and sleigh successfully made it southward. Yuletide hugs, Ken
+Hope Santa (swim trunks donned), reindeer and sleigh successfully made it southward. Yuletide hugs, [[Ken]]

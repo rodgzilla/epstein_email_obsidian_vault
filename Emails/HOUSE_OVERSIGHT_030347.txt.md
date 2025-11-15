@@ -5,4 +5,4 @@ receiver: "[[Eeee]]"
 date: "2016-11-04 22:58:00"
 ---
 
-EEEE
+[[Eeee]]

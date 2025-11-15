@@ -5,4 +5,4 @@ receiver: "[[Alan M. Dershowitz]]"
 date: "2010-02-26 10:01:00"
 ---
 
-Forwarded message
+[[Forwarded Message]]

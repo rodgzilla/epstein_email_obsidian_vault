@@ -7,6 +7,6 @@ date: "2014-01-20 12:20:45"
 
 The black part? 
 On Monday, January 20, 2014, 
-wrote: 
-I know. When warren goes, a part of us goes too. No BS in that. 
-Sent via BlackBerry by AT&T
+[[Wrote]]: 
+[[I]] know. When warren goes, a part of us goes too. No BS in that. 
+[[Sent]] [[Via]] BlackBerry by AT&T

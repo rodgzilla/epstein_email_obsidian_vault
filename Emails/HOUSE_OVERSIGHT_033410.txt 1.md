@@ -5,4 +5,4 @@ receiver: "[[]]"
 date: "2019-04-13 18:39:25"
 ---
 
-Thanks. I appreciate it. I was just reporting what I heard.
+Thanks. [[I]] appreciate it. [[I]] was just reporting what [[I]] heard.

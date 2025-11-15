@@ -6,8 +6,8 @@ date: "2015-01-10 14:41:47"
 ---
 
 call me 
-On Sat, Jan 10, 2015 at 10:33 AM, G Maxwell <GMaxlgellmax.com> wrote: 
-I need it written out in full. 
+On Sat, Jan 10, 2015 at 10:33 AM, [[G Maxwell]] <GMaxlgellmax.com> [[Wrote]]: 
+[[I]] need it written out in full. 
 THE TERRAMAR PROJECT 
 FACEBOOK 
 TWITTER 

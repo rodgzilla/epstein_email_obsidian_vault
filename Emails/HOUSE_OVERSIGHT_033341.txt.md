@@ -5,9 +5,9 @@ receiver: "[[jeevacation@gmail.com]]"
 date: "2019-02-01 20:12:28"
 ---
 
-Jeffrey 
+[[Jeffrey]] 
 Just heads up 
-President Trump arrives PBI today and is scheduled to depart 9pm on Sunday, 
+President Trump arrives PBI today and is scheduled [[To]] depart 9pm on Sunday, 
 Should not effect our arrival at 11:30pm Sunday evening 
 Thx 
-Larry
+[[Larry]]

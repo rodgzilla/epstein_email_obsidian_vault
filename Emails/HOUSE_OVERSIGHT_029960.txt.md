@@ -6,4 +6,4 @@ date: "2016-05-18 16:41:19"
 ---
 
 That sucks.... 
-Sent from my Windows Phone
+[[Sent]] [[From]] my Windows Phone

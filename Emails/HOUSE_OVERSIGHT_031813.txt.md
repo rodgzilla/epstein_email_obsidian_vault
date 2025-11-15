@@ -5,27 +5,27 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2018-07-13 18:46:14"
 ---
 
-i do not believe so.. 
-i will look into exact trades.. 
-Richard Kahn 
+[[I]] do not believe so.. 
+[[I]] will look into exact trades.. 
+[[Richard Kahn]] 
 HBRK Associates Inc. 
 575 Lexington Avenue 4th Floor 
 New York, NY 10022 
-tel I 
+tel [[I]] 
 fax 
 cell 
-On Jul 13, 2018, at 2:41 PM, jeffrey E. <jeevacation@gmail.com> wrote: 
+On Jul 13, 2018, at 2:41 PM, [[Jeffrey]] E. <jeevacation@gmail.com> [[Wrote]]: 
 Did he sell naked puts?? 
-On Fri, Jul 13, 2018 at 2:35 PM Richard Kahn > wrote: 
-i believe he is married to broadcom as has he got stuck with stock on both 4,000 lots from selling puts.. 
-Richard Kahn 
+On Fri, Jul 13, 2018 at 2:35 PM [[Richard Kahn]] > [[Wrote]]: 
+[[I]] believe he is married [[To]] broadcom as has he got stuck with stock on both 4,000 lots [[From]] selling puts.. 
+[[Richard Kahn]] 
 HBRK Associates Inc. 
 575 Lexington Avenue 4th Floor 
 New York, NY 10022  
 tel 
 fax 
 cell 
-On Jul 13, 2018, at 2:18 PM, jeffrey E. <jeevacation@gmail.com> wrote: 
+On Jul 13, 2018, at 2:18 PM, [[Jeffrey]] E. <jeevacation@gmail.com> wrote: 
 Again?? How many puts ? What are the alternatives. The fact tgat you iwn thd stock at a higher price is 
 affecting your decision. Sorry. This is judt ridiculous!!! Would you buy the stock here. ???? If you would 
 would you also buy puts ??? My patience is at its end 

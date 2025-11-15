@@ -6,4 +6,4 @@ date: "2017-03-22 14:39:00"
 ---
 
 WOW!!! 
-Begin forwarded message:
+Begin [[Forwarded Message]]:

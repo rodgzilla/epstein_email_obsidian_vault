@@ -11,11 +11,11 @@ Carlsbad, CA 92009
 Chopra Foundation  
 Jiyo  
 Chopra Center for Wellbeing 
-I 
+[[I]] 
 •Yfb.0.-ARE 
 ' NE 
 UNIVERSE 
 it 
 Oil /Al!: ........... 
-I 
-discoveringyourcosmicself.com
+[[I]] 
+discoveringyourcosmicself.[[Com]]

@@ -5,4 +5,4 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2017-09-13 23:59:38"
 ---
 
-i enjoyed it e .. see you in november inshalla
+[[I]] enjoyed it e .. see you in november inshalla

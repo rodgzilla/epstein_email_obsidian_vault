@@ -106,13 +106,13 @@ Rev sed Fisca Ba ance program --- more growth, more r sk
 Macro tab c 
 Equity strategy: opportunity abounds as momentum picks up 
 KSA trading in 
-ins w in GEMs -iesp te improving outlook 
+ins [[W]] in GEMs -iesp te improving outlook 
 Banks & petchems preferred; select vs elsewhere 
 National Champions strategy remains attractive 
 2018 - the year of potential tw n index nclus ons 
 Banks: budget supports positive outlook 
 Saudi banks key beneficiary of ic)osened fiscal po 
-2018 shaping up to he a strong year for the Saud 
+2018 shaping up [[To]] he a strong year for the Saud 
 ICY 
 banks 
 Consumer: factors align for a more positive outlook 
@@ -120,19 +120,19 @@ Easing austerity, higher growth boost disposable income
 Expat levies: uniform fees, d 
 fferentiated 
 mpact 
-Petchems: government support to continue for an extended duration 
+Petchems: government support [[To]] continue for an extended duration 
 Delay in feedstock prices and electricity tariff hikes 
-Types of support for the sector from the government 
+Types of support for the sector [[From]] the government 
 Healthcare: no surprises 
 HOUSE OVERSIGHT 029462 
 Telecom: towards the end of the tunnel? 
-Utilities: a balancing fund to manage the transition 
+Utilities: a balancing fund [[To]] manage the transition 
 Commodities: as good as it gets for OPEC 
 Disclosures 
 Research Analysts 
-Jean-Michel Saliba 21 
+Jean[[-]]Michel Saliba 21 
 MENA Economist/Strategist 
 MLI (UK) 
-This report is intended for Coleman Mackay 
+This report is intended for [[Coleman]] Mackay 
 Ba nk of Amer, 
 Merrill Lynch

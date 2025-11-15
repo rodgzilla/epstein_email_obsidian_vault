@@ -5,25 +5,25 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2017-08-11 15:05:31"
 ---
 
-I thought you might be interested in this article: 
+[[I]] thought you might be interested in this article: 
 Manafort ratted on Donald Jr.'s meeting with the Russian lawyer  
-Trump's former campaign manager Paul Manafort alerted authorities to Donald Trump Jr.'s infamous meeting 
+Trump's former campaign manager Paul Manafort alerted authorities [[To]] Donald Trump Jr.'s infamous meeting 
 with the Russian lawyer during his father's presidential campaign. 
-Manafort, who is facing increasing pressure from U.S. special counsel Robert Mueller, divulged Trump Jr.'s 
+Manafort, who is facing increasing pressure [[From]] U.S. special counsel [[Robert]] Mueller, divulged Trump Jr.'s 
 meeting with Natalia Veselnitskaya about three months ago, Bloomberg reported. 
-Responding to a congressional request for information, Manafort revealed the meeting and provided 300 
-documents, although FBI agents went on to raid his Virginia home two weeks ago. 
-Trump, responding to news of the raid, said, "I was very, very surprised to see it... .I've always found Paul 
-Manafort to be a very decent man." 
-Investigators are looking into accusations of money laundering in an attempt to pressure Manafort into 
-cooperating with the probe into the Trump campaign's possible ties to Russia, two sources told Reuters. 
-"If Mueller's team can threaten criminal charges against Manafort, they could use that as leverage to convince 
-him to cooperate," said one of the sources. 
+Responding [[To]] a congressional request for information, Manafort revealed the meeting and provided 300 
+documents, although [[Fbi]] agents went on [[To]] raid his Virginia home two weeks ago. 
+Trump, responding [[To]] news of the raid, said, "[[I]] was very, very surprised [[To]] see it... .[[I]]'ve always found Paul 
+Manafort [[To]] be a very decent man." 
+Investigators are looking into accusations of money laundering in an attempt [[To]] pressure Manafort into 
+cooperating with the probe into the Trump campaign's possible ties [[To]] Russia, two sources told Reuters. 
+"If Mueller's team can threaten criminal charges against Manafort, they could use that as leverage [[To]] convince 
+him [[To]] cooperate," said one of the sources. 
 But the former campaign manager's spokesman Jason Maloni said, "Paul Manafort is not a cooperating 
 witness." 
-Maloni also told Bloomberg that Manafort was enlisting the services of a D.C.-based law firm Miller & 
-Chevalier,which focuses on tax law, to replace WilmerHale, where Mueller previously worked. 
-Mueller's investigation has extended to global bank transactions involving Manafort, as well as his business 
-partner Rick Gates and son-in-law, Jeffrey Yohai. 
-Yohai, who is under investigation for real estate deals he made with Manafort, turned over documents to 
+Maloni also told Bloomberg that Manafort was enlisting the services of a D.C.-based law firm [[Miller]] & 
+Chevalier,which focuses on tax law, [[To]] replace WilmerHale, where Mueller previously worked. 
+Mueller's investigation has extended [[To]] global bank transactions involving Manafort, as well as his business 
+partner Rick Gates and son[[-]]in[[-]]law, [[Jeffrey]] Yohai. 
+Yohai, who is under investigation for real estate deals he made with Manafort, turned over documents [[To]] 
 Mueller's probe more than two months

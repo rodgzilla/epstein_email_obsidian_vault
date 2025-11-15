@@ -6,13 +6,13 @@ date:
 ---
 
 4/26/2011 7:25:19 PM 
-jeevacation@gmail.com;_________________________________________________ 
+[[jeevacation@gmail.com]];_________________________________________________ 
 Boeing 
-Jeffrey and Sean, 
-I heard Trump has a contract on his B727, no money has changed hands, sold for 2.2M as is,, he needs three engine 
+[[Jeffrey]] and Sean, 
+[[I]] heard Trump has a contract on his B727, no money has changed hands, sold for 2.2M as is,, he needs three engine 
 overhaul's in the next 14 months, 600k worth total,.. 
-Sean may know this guy, he is Indian, I think his name is Shugo or something like that, he is buying the plane and leasing 
-it to company in Singapore, FYI info,. 
+Sean may know this guy, he is Indian, [[I]] think his name is Shugo or something like that, he is buying the plane and leasing 
+it [[To]] company in Singapore, FYI info,. 
 thx, 
-Larry 
+[[Larry]] 
 HOUSE OVERSIGHT 033487

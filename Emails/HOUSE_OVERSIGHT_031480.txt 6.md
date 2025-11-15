@@ -5,8 +5,8 @@ receiver: "[[Will Bohlen ______________________________________ King; .; Miller;
 date: "2016-08-05 13:10:00"
 ---
 
-FYI — our vendor is creating a transcript from the audio recording, so I'll send that around when it's ready. 
-Michael A. Keough 
+FYI — our vendor is creating a transcript [[From]] the audio recording, so [[I]]'ll send that around when it's ready. 
+[[Michael]] A. [[Keough]] 
 Associate 
 direct fax 
 Steptoe 

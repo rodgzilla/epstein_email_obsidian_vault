@@ -6,8 +6,8 @@ date:
 ---
 
 http://www.bloomberg.com/news/articles/2016-09-30/this-chart-predicts-trump-will-win-unless-the-s-p-
-rallies-in-october 
-Richard Kahn 
+rallies[[-]]in[[-]]october 
+[[Richard Kahn]] 
 HBRK Associates Inc. 
 575 Lexington Avenue, 4th Floor 
 New York, NY 10022 

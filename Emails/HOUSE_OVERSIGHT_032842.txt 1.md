@@ -6,5 +6,5 @@ date: "2014-07-02 10:39:00"
 ---
 
 Very 
-On Wednesday, July 2, 2014, Weingarten, Reid 
+On Wednesday, July 2, 2014, [[Weingarten]], [[Reid]] 
 Is he a friend of yours?

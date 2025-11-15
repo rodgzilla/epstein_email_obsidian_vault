@@ -5,7 +5,7 @@ receiver: "[[jeevacation@gmail.com]]"
 date: "2009-10-09 12:32:00"
 ---
 
-Sent from my iPhone 
-Robert D. Critton Jr. 
+[[Sent]] [[From]] my iPhone 
+[[Robert]] D. Critton Jr. 
 Privileged - Redacted 
-Begin forwarded message:
+Begin [[Forwarded Message]]:

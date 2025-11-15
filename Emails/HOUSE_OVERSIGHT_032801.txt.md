@@ -6,5 +6,5 @@ date: "2018-08-29 16:19:56"
 ---
 
 In Europe saw this it will drive him crazy!! 
-https://bossip.com/1664506/premature-potus-stormy-daniels-says-donald-trump-only-lasted-2-minutes-inside-
-her-pornographic-pleasure-pocket-43081/
+https://bossip.[[Com]]/1664506/premature[[-]]potus[[-]]stormy[[-]]daniels[[-]]says[[-]]donald[[-]]trump[[-]]only[[-]]lasted[[-]]2[[-]]minutes[[-]]inside-
+her[[-]]pornographic[[-]]pleasure[[-]]pocket[[-]]43081/

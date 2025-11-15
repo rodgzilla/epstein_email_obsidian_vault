@@ -5,4 +5,4 @@ receiver: "[[jeevacation@gmail.com]]"
 date: "2017-10-15 11:45:57"
 ---
 
-Yes
+[[Yes]]

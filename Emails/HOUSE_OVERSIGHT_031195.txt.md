@@ -5,8 +5,8 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2016-01-27 17:02:21"
 ---
 
-DARREN K. INDYKE 
-DARREN K. INDYKE, PLLC 
+[[Darren]] K. [[Indyke]] 
+[[Darren]] K. [[Indyke]], PLLC 
 575 Lexington Avenue, 4th Floor 
 New York, New York 10022 
 Telephone: 

@@ -6,7 +6,7 @@ date: "2017-01-20 15:25:48"
 ---
 
 http://www.cnbc.com/2017/01/20/trump-could-tap-tech-entrepreneur-peter-thiel-for-germany-j ob -rep ort.html 
-Richard Kahn 
+[[Richard Kahn]] 
 HBRK Associates Inc. 
 575 Lexington Avenue 4th Floor 
 New York, NY 10022 

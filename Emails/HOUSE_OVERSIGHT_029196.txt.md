@@ -6,15 +6,15 @@ date:
 ---
 
 Talk in 40? 
-Lawrence Krauss 
+[[Lawrence]] Krauss 
 8/29/2018 11:01:49 PM 
-jeffrey E. [jeeyacation@gmail.com] 
+[[Jeffrey]] E. [[[jeeyacation@gmail.com]]] 
 Re: October 19, Heidelberg 
 High 
-Lawrence M. Krauss 
+[[Lawrence]] M. Krauss 
 Professor 
 School of Earth & Space Exploration and Physics Department 
-Arizona State Universit, P.O. Box 871404, Tempe, AZ 85287-1404 
+Arizona State Universit, P.O. Box 871404, Tempe, AZ 85287[[-]]1404 
 Research Office: 
 Assistant 
-twitter.com/Ikraussl I krauss.faculty.asu.edu
+twitter.[[Com]]/Ikraussl [[I]] krauss.faculty.asu.edu

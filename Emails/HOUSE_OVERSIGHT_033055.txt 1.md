@@ -6,5 +6,5 @@ date: "2018-01-03 13:53:00"
 ---
 
 told you 
-On Wed, Jan 3, 2018 at 1:11 PM, Weingarten, Reid < > wrote: 
+On Wed, Jan 3, 2018 at [[1]]:11 PM, [[Weingarten]], [[Reid]] < > [[Wrote]]: 
 Internet is crashing right now about this....trump apparently off his rocker

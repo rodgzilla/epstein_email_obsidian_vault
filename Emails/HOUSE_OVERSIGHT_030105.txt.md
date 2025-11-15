@@ -7,5 +7,5 @@ date: "2016-08-12 04:15:15"
 
 Flag: Follow up 
 Cool 
-On Thursday, 11 August 2016, Kathy Ruemmler wrote: 
-Begin forwarded message:
+On Thursday, 11 August 2016, [[Kathy]] [[Ruemmler]] [[Wrote]]: 
+Begin [[Forwarded Message]]:

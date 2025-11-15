@@ -10,9 +10,9 @@ https://www.nytimes.com/2o17/02/o2/business/dealbook/an-early-trump-backer-await
 reward.html? r=o  
 Interesting piece on cognitive science/Trump. Right down your alley. 
 http://www.bijaadvisors11c.com/trumpfog.html  
-Landon Thomas, Jr. 
+[[Landon]] Thomas, Jr. 
 Financial Reporter 
 New York Times 
-http://topics.nytimes.com/top/reference/timestopics/people/t/landon jr thomas/index.h  
+http://topics.nytimes.[[Com]]/top/reference/timestopics/people/t/[[Landon]] jr thomas/index.h  
 tml 
 HOUSE OVERSIGHT 033224

@@ -5,4 +5,4 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2018-03-21 14:54:13"
 ---
 
-I'd rather be in Donni Dee's shoes.
+[[I]]'d rather be in Donni Dee's shoes.

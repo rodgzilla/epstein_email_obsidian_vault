@@ -5,4 +5,4 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2017-05-08 15:34:45"
 ---
 
-Gosh I don't drink and I never did drugs
+Gosh [[I]] don't drink and [[I]] never did drugs

@@ -10,7 +10,7 @@ Mail have published phone logs
 http://www.dailymail.co.uk/news/article- 1364171/Females-Jeffrey-Epstein-The-damning-telephone-log.html < < 
 http://www.dailymail.co.uk/news/article- 1364171/Females-Jeffrey-Epstein-The-damning-telephone-log.html> 
 http://www.dailymail.co.uk/news/article- 1364171/Females-Jeffrey-Epstein-The-damning-telephone-log.html> 
-Ross Gow 
+[[Ross Gow]] 
 Managing Partner 
 ACUITY Reputation Limited 
 23 Berkeley Square 
@@ -18,4 +18,4 @@ London W1J 6HE
 Mobile 
 Tel 
 HOUSE OVERSIGHT 030232 
-<http://acuityreputation.com> acuityreputation.com
+<http://acuityreputation.com> acuityreputation.[[Com]]

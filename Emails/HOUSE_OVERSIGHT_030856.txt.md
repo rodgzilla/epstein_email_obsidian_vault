@@ -6,4 +6,4 @@ date: "2015-01-09 01:53:22"
 ---
 
 Classification: Confidential 
-Vol in crude continues to collapse
+Vol in crude continues [[To]] collapse

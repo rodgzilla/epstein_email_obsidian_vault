@@ -6,12 +6,12 @@ date: "2015-08-27 14:26:33"
 ---
 
 , 
-i Privileged - Redacted i 
-i i 
-i i 
-i i 
-i 
-i 
-i_ i 
-On Thursday, August 27, 2015, Kathy Ruemmler < wrote: 
+[[I]] Privileged - Redacted [[I]] 
+[[I]] [[I]] 
+[[I]] [[I]] 
+[[I]] [[I]] 
+[[I]] 
+[[I]] 
+i_ [[I]] 
+On Thursday, August 27, 2015, [[Kathy]] [[Ruemmler]] < [[Wrote]]: 
 Great.

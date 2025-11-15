@@ -5,4 +5,4 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2017-05-22 20:39:37"
 ---
 
-Sent from my BlackBerry 10 smartphone.
+[[Sent]] [[From]] my BlackBerry 10 smartphone.

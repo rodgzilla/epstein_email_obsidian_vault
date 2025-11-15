@@ -5,8 +5,8 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2017-07-25 12:57:37"
 ---
 
-i will talk to here this morning 
+[[I]] will talk [[To]] here this morning 
 her Skype contact is in moscow. 
 is this correct? 
-On Jul 25, 2017, at 6:47 AM, jeffrey E. <jeevacation@gmail.com> wrote: 
-Forwarded message
+On Jul 25, 2017, at 6:47 AM, [[Jeffrey]] E. <jeevacation@gmail.com> [[Wrote]]: 
+[[Forwarded Message]]

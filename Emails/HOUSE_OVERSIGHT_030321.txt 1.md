@@ -6,5 +6,5 @@ date: "2018-04-09 16:34:00"
 ---
 
 yds 8 
-On Mon, Apr 9, 2018 at 4:14 PM, Weingarten, Reid < > wrote: 
+On Mon, Apr 9, 2018 at 4:14 PM, [[Weingarten]], [[Reid]] < > [[Wrote]]: 
 We on for tomorrow?

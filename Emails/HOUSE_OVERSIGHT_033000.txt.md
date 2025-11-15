@@ -5,6 +5,6 @@ receiver: "[[Anasalrasheed]]"
 date: "2017-05-21 15:51:09"
 ---
 
-Yes. His time at home more difficult 
-On Sun, May 21, 2017 at 11:07 AM <anasalrasheed1111> wrote: 
+[[Yes]]. His time at home more difficult 
+On Sun, May 21, 2017 at 11:07 AM <anasalrasheed1111> [[Wrote]]: 
 just finished watching trump speech, he did well

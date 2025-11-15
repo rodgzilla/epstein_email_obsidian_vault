@@ -5,10 +5,10 @@ receiver: "[[Larry Visoski]]"
 date: "2018-01-09 01:22:51"
 ---
 
-Yes 
-On Mon, Jan 8, 2018 at 8:04 PM Larry Visoski ‹> wrote: 
-Jeffrey 
-Boston / Bedford are not gateway airports to PBI. 
+[[Yes]] 
+On Mon, Jan 8, 2018 at 8:04 PM [[Larry]] Visoski ‹> [[Wrote]]: 
+[[Jeffrey]] 
+Boston / Bedford are not gateway airports [[To]] PBI. 
 Only airports that are gateway into Palm Beach are: 
 White Plains 
 Teterboro 
@@ -20,6 +20,6 @@ Most operators are using Boca for arrivals when Trump is in town. Parking reserv
 since the ramp fill up. Other options is Fort Lauderdale when Boca is full. 
 POTUS arrival — Friday, January 12th, time TBD (likely PM) 
 POTUS departure — Monday, January 15th, time TBD (likely PM) 
-Should I request parking at Boca? 
+Should [[I]] request parking at Boca? 
 Thx 
-Larry
+[[Larry]]

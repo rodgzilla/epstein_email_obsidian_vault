@@ -5,4 +5,4 @@ receiver: "[[Jack Goldberger]]"
 date: "2009-10-09 16:43:25"
 ---
 
-; Robert D. Critton Jr.
+; [[Robert]] D. Critton Jr.

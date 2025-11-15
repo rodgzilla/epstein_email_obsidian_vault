@@ -10,19 +10,19 @@ Sorry for all the typos .Sent from my iPhone
 On Nov 3, 2010, at 3:43 PM, 
 > Maybe in May? 
 >------Original Message------ 
-> From: Uncle F Jeffrey Epstein 
-> To:____________________ 
-> Subject: Re: Quick question 
-> Sent: Nov 3, 2010 10:40 AM 
-> He couldn't for a few months , too hot 
-> Sorry for all the typos .Sent from my iPhone 
+> [[From]]: Uncle F [[Jeffrey]] [[Epstein]] 
+> [[To]]:____________________ 
+> [[Subject]]: Re: Quick question 
+> [[Sent]]: Nov 3, 2010 10:40 AM 
+> He couldn't for a few months , [[Too Hot]] 
+> Sorry for all the typos .[[Sent]] [[From]] my iPhone 
 > On Nov 3, 2010, at 3:36 PM, 
 >> Hey Unc, 
->> Quick Question...do u think Larry Summers 
+>> Quick Question...do u think [[Larry]] [[Summers]] 
 government in general, etc? 
->> Sent via BlackBerry from T- Mobile 
-> Sent via BlackBerry from T- Mobile 
-wrote: 
-wrote: 
-would come to Trinity to speak about Obama, the economy, the 
+>> [[Sent]] [[Via]] BlackBerry [[From]] T- Mobile 
+> [[Sent]] [[Via]] BlackBerry [[From]] T- Mobile 
+[[Wrote]]: 
+[[Wrote]]: 
+would come [[To]] Trinity [[To]] speak about Obama, the economy, the 
 HOUSE OVERSIGHT 030508

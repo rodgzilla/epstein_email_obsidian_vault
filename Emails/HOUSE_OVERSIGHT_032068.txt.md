@@ -1,18 +1,18 @@
----
+[[To]][[To]][[To]][[To]][[To]][[To]][[To]][[-]][[-]][[To]][[To]][[-]][[To]][[To]][[-]][[-]][[-]][[To]][[February 21]][[To]][[From]][[-]][[Eric]][[To]][[Ii]][[To]][[-]][[-]][[-]][[1]][[To]][[To]][[June 10]][[To]][[To]][[To]][[To]][[-]][[From]][[-]][[To]][[To]][[To]][[From]][[From]][[To]][[To]][[Sent]][[To]][[To]][[To[[-]]][[From]][[To]][[To]][[Sent]][[To]][[Via]][[To]][[From]][[I]][[-]][[-]][[-]][[To]][[To]][[-]][[-]][[-]][[-]][[To]][[-]][[1]][[Sent]][[Via]][[To]][[-]][[From]][[To]][[To]][[Com]][[To]][[1]][[To]][[To]][[From]][[To]][[-]][[-]][[1]][[To]][[From][[To]][-]][[-]][[To]][[To]][[To]][[To]][[1]][[From]][[-]][[-]][[To]][[To]][[To]][[To]][[1]][[To]][[To[[1]]][[-]][[To]][[To]][[To]][[L]][[To]][[Ii]][[Eric]][[-]][[-]][[From]][[From]][[-]][[To]][[To]][[-]][[T[[-]]]][[To]][[-]][[-]][[-]][[To]][[To]][[-]][[From]][[To]][[Via]][[1]][[To]][[[-]]To]][[To]][[To]][[-]][[To]][[To]][[I]][[-]][[To]][[Sent]][[-]][[-]][[-]][[To]][[1]][[To]][[To]][[To]][[-]][[To]][[-]][[To]][[-]][[-]][[To]][[To]][[-]][[-]][[Michael]][[1]][[To[[-]]][[To]][[To]][[To]][[-]][[To]][[To]][[June 10]][[To]][[To]][[To]][[-]][[-]][[To]][[-]][To]][[-]][[To]][[To]][[-]][[-]][[To]][[To]][[Exactly]][[To]][[To]][[To]][[To]][[From]][[To]][[-]][[To]][[-]][[T[[To]]][[From]][[To]][[To]][[-]][[Via]][[To]][[-]][[To]][[To]][[From]][[To]][[To]][[To]][[Com]][[To]][[To]][[To]][[-]][[-]][[To]][[To]][[Yes]][[-]][[To]][[To]][[[[-]]ichael]][[-]][[To][[-]][[To]][[To]][[-]][[-]][[To]][[I]][[To]][[To]][[To]][[From]][[I]][[I]][[1]][[I]][[To]][[To]][[I]][[-]][[-]][[To]][[To]][[Com]][[To]][[To[[To]][[To]][[To]][[To]][[Sent]]---
 filename: "HOUSE_OVERSIGHT_032068.txt"
-sender: "[[jeeyacation@gmail.com]]"
+sender: "[[jeey[[To]]ation@gmail.com]]"
 receiver: "[[Sultan Bin Sulayem]]"
 date: "2011-09-22 10:19:51"
 ---
 
-we will have dinnner at 8 „ you can bring your maldives friend or anyone else. ( no women ). we should 
-spend an hour together just the two of us. today tomorrow:? It is always fun to see you 
-On Thu, Sep 22, 2011 at 12:46 AM, Sultan Bin Sulayem wrote: 
+we will have dinnner at 8 „ you can bring your maldives friend or anyone e[[To]]e. ( no women ). we should 
+spend an hour together just the two of us. today tomorrow:? It is always fun [[To]] see you 
+On Thu, Sep [[To]], 2011 at 12:46 AM, [[S[[To]]tan Bin Sulayem]] [[Wrote]]: 
 • About GTX 
 • Products & Services 
 • Platform 
 • News 
-• Contact Us 
+• Contact[[-]]Us 
 • Investors 
 • Press 
 • Blog 
@@ -27,147 +27,146 @@ o Locimobile
 NEWS 
 Patrick Bertagna Interviewed on 
 Travel Talk Radio with Sandy Dhuyvetter 
-____ Patrick Bertagna, founder and co-inventor of the GTX Smart Shoe, joins Sandy to 
-discuss this new invention and what it means to patients and families. 
-The Executive Producer and Host of TravelTalkMEDIA is Ms. Sandy Dhuyvetter, one of the 
-world's leading travel industry media specialists. Following a successful career as a pioneer in the 
-HOUSE OVERSIGHT 032068 
+____ Patrick Bertagn[[-]], founder and co[[-]]inventor of the GTX Smart Shoe, joins Sandy [[To]] 
+discuss this new invention and what it means [[To]] patients and families. 
+The Executive Producer and Host of TravelTalkMEDIA is Ms. Sandy Dhuyv[[-]]tter, one of the 
+world's lead[[To]]g travel industry media[[-]]specialists. Following a successful [[To]]reer as a pioneer in the 
+HOUSE OV[[-]]RSIGHT 032068 
 intemet industry and new media in the San Francisco area, Sandy established TravelTalkMEDIA 
-in 2001 to provide radio and web-based, online information to the U.S. and global travel industry. 
-Listen to the radio interview (MP3) 
+in 2001 [[To]] provide radio and [[-]]eb[[-]]based, online [[From]]rmation [[To]] the U.S. and global[[-]]travel indus[[To]]y. 
+Listen [[To]] the radio interview (MP3) 
 GTX Corp's Tracking Apps Hit One Million Dowloads 
-GPS Wolrd - July 12, 2011 - GPS Tracking Apps, from GTX Corp subsidiary 
-LOCiMOBILE, have been downloaded more than one million times by users in 116 countries, and 
-continues to be on the top charts of iTunes and Android marketplace, the company said. 
-"The GPS Tracking app is the simplest way to stay connected to a child, parent, friend or business 
-associate, quickly and accurately from a Smartphone or Internet-ready device like the iPad, iPod 
-or Android tablet, allowing users to locate people, instantly with one simple touch of a button," 
-said Patrick Bertagna, CEO of GTX Corp. "We also offer it at a price everyone can afford without 
+GPS Wolrd - July 12, 2011 - GPS Tra[[To]]ing Apps, [[From]] GTX Corp subsidiary[[From]]CiMOBILE, have been downloaded more[[From]]n one million times by users in 116 countries, and 
+co[[-]]tinues [[To]] be on the top charts of iTunes and Android marketplace, the company said. 
+"The GPS Tracking app is the simple[[From]]ay [[To]] stay connected [[To]] a child, parent, friend or business 
+associa[[To]], quickly and accurately [[From]] a Smartphone or Internet[[-]]ready device like the iPad, iPod 
+or Android tablet, allowing users [[To]] locate people, instantly with one simple touch of a button," 
+said Patrick Bertagna, CEO of GTX Corp. "We also offer it at a price everyone [[To]]n afford without 
 compromising privacy." 
 Read the full article 
-GTX Corp... More'n A Million Served (GPS) 
-This App has managed to stay quite popular in both iTunes and Android online sites... 
-SatNews Daily - July 1, 2011 - GTX Corp. (OTCBB: GTX0.0B), a 
-provider of real-time two way GPS Tracking and personal location 
-services (PLS) has announced its LOCiMOBILE subsidiary's GPS 
-Tracking Apps has managed more than 1 Million downloads with 
-users in 116 countries and continues to be on the top charts of iTunes 
-and Android market place. "The GPS Tracking app is the simplest way to stay connected to a 
-child, parent, friend or business associate, quickly and accurately from a Smartphone or intemet 
-ready device like the iPad, iPod or Android tablet, allowing users to locate people, instantly with 
-one simple touch of a button," said Patrick Bertagna, CEO of GTX Corp. "We also offer it at a 
+GTX Corp... More'n[[Michael]]ion Served (GPS) 
+This App has managed [[To]] stay quite popular in bo[[To]] iTunes and Android online sites... 
+SatNews Daily - July [[1]], 2011 - GTX Corp. (OTCBB: GTX0.0B), a 
+provider of real[[-]]time two way GPS Tr[[To]]king and personal location 
+services (PLS) has announced its LOCiMOBILE subsid[[-]]ary's GPS 
+Tracking Apps has managed more than [[1]] Million downloads with 
+users in 116 countries a[[To]] continues [[To]] be on the top charts of iTunes 
+and Android market place. "The GPS Tracking app is the simplest way [[To]] stay connected [[To]] a 
+child, parent, friend or business associate, quickly a[[To]] accurately [[From]] a Smar[[From]]ne or intemet 
+ready device like the iPad, iPod or Android tablet, allowing users [[To]] locate people, i[[To]]tantly with 
+one simple touch of a button," said Patrick B[[To]]tagna, CEO of GTX C[[To]]p. "We[[To]]lso offer it at a 
 price everyone can afford without compromising privacy." 
 Read the full article 
-Professor Andy Carle talks about "Nana" technology and the GPS Smart ShoeTM 
+Prof[[To]]sor Andy Carle talks about "Nana" technology and the GPS Smart ShoeTM 
 HOUSE OVERSIGHT 032069 
 Radio show called "Wriggling in the Middle", based out of Canton, Ohio and syndicated 
 nationally through FOX radio network. 
 http ://www.whb c . c om/Wrigg ling-In- The-Middle/6636686  
-For anyone who would like to skip directly to the shoes, go to the link below, scroll down to the 
-show listing (March 28) and fast forward to about the 26-minute mark. The conversation on the 
+For anyone who would like [[To]] skip directly [[To]] the shoes, go [[To]] the link below, scroll down [[To]] the 
+show listing (March 28) and fast forward [[To]] about the 26[[-]]minute mark. The conversation on the 
 shoes lasts about 7 minutes. 
-Proximity marketing will push location based service revenues to nearly $13 billion over the 
+Proximity marketing will push location based service revenues [[[From]]] nearly $13 billion over the 
 next few years. 
-SatNews Daily - March 23, 2011 - GTX Corp (OTCBB: GTXO) and ADAM, Inc. have 
+SatNew[[To]]Daily - March 23, 2011 - GTX Corp (OTCBB: GTXO) and ADAM, Inc. have 
 entered into an exclusive revenue share agreement allowing 123 Chambers of Commerce 
-representing more than 100,000 businesses nationwide to push out proximity alert promotions, 
+representing more than 100,000 businesses nationwide [[T[[To]]] push out proximity alert promotions, 
 using the GTX Corp GPS/PLS Platform and leveraging its growing GPS Tracking Smartphone 
-App user base. Gartner reports that 42 percent of consumers use their phone to check a store 
+App user base. Gartner reports that 42 percent of consumers use their phone [[To]] check a store 
 location, 31% use it for a mobile promotion, and 17 percent use their phone for the actual 
 purchase. 
-Read the full article 
+Read the[[From]]l article 
 GTX Corp. Joins with Chambers of Commerce on Location Advertising 
-GPS World - March 22, 2011 - GTX Corp., which provides two-way GPS Personal 
+GPS World - March 22, 2011 - GTX Corp., which provides two[[-]]way GPS Personal 
 Location Services (PLS), and ADAM, Inc., a platform for Hyper Local Mobile Apps for 
-Directories, entered into an exclusive revenue share agreement allowing 123 Chambers of 
-Commerce representing more than 100,000 businesses nationwide to push out proximity alert 
+Directories, entered into an [[To]]clusive revenue share agreement allowing 123 Chambers of 
+Commerce representing more than 100,000 businesses nationwide [[To]] push out proximity alert 
 promotions, using the GTX Corp GPS/PLS Platform and leveraging its growing GPS Tracking 
 Smartphone App user base, GTX Corp. announced. 
 Read the full article 
 New Tech Is Helping Families With Special Needs 
-March 17, 2011 8:52 PM - MIAMI (CBS4) — New technology is making life a little easier for 
+March 17, 2011 8:52 PM - [[Miami]] (CBS4) — New technology is making life a little easier for 
 people with special needs and their families. 
 HOUSE OVERSIGHT 032070 
 The GTX Corp. is introducing new shoes, loafers and sneakers, with GPS built into them. CBS 
 technology expert Katie Linendoll said they can really come in handy for families who are taking 
-care of relatives suffering from Alzheimer's disease. With a downloadable app, they can track 
-them using the GPS or get an alert if the person wanders out of a pre-set safe zone. 
+care of relatives suffering [[From]] Alzheimer's disease. With a downloadable app, they can track 
+them using the GPS or get an alert if the person wanders out of a pre[[-]]set safe zone. 
 Read the full story and view the video 
 Technology for seniors 
-Great Day Show - CBS KHou.com - Houston - March 23, 2011 
-Truly groundbreaking tech to ch awe our live, 
+Great Day Show - CBS KHou.[[Com]] - Houston - March 23, 2011 
+Truly groundbreaking tech [[To]] ch awe our live, 
 CBS News - Early Show - March 17, 2011 - The shoe uses GPS and cellular technologies. It 
-gives a family member or a caregiver the option of monitoring real-time from the Internet or on 
+gives a family member or a caregiver the option of monitoring real[[-]]time [[From]] the Internet or on 
 your phone... 
 Watch the CBS Early Show video 
 GTX's GPS Tracking Apps For iPhone 
-Apps allow you to let family, friends know your location 
-Joel Mathis, Macworld.com - If the federal government tagged millions of iPhone users with 
+Apps allow you [[To]] let family, friends know your location 
+Joel Mathis, Macworld.[[Com]] - If the federal government tagged millions of iPhone users with 
 GPS tracking devices, the American people—or, at least, Apple devotees—might protest very 
 strongly. But iPhones these days come with GPS installed, and companies make good money 
 furnishing apps that utilize that very feature. On this list: GTX, who offers a pair of $4 GPS 
-apps—GPS Tracking and Tracking—that provide workmanlike solutions for users who want to 
+apps—GPS Tracking and Tracking—that provide workmanlike solutions for users who want [[To]] 
 keep an electronic eye on their loved ones. 
 Read the full article 
-Going Gray-Where Technology's Headed - Entering the Gray-Tech Revolution 
+Going Gray[[-]]Where Technology's Headed - Entering the Gray[[-]]Tech Revolution 
 World Market Media - Brittney Barrett - February 16, 2011 
 Over the next 20 years, 80 million baby boomers will enter their 
 sixties and seventies in the U.S. alone. In the next 40, the number of senior citizens will double. 
-For the government, this represents a huge financial burden resultant from rising Medicare and 
+For the government, this represents a huge financial burden resultant [[From]] rising Medicare and 
 HOUSE OVERSIGHT 032071 
-Social Security costs. For industries focused on late-life care and creating products that cater to the 
+Social Security costs. For industries focused on late[[-]]life care and creating products that cater [[To]] the 
 aging demographic; however, this population shift represents a major opportunity. 
 Read the full article 
-Walk to Remember? A National Academy of Sciences Study Says Yes 
-February 13, 2011 - In healthy adults, the hippocampus — a part of the brain important to the 
-formation of memories — begins to atrophy around 55 or 60 and even sooner to an even greater 
+Walk [[To]] Remember? A National Academy of Sciences Study Says [[Yes]] 
+February 13, 2011 - In healthy adults, the hippocampus — a part of the brain important [[To]] the 
+formation of memories — begins [[To]] atrophy around 55 or 60 and even sooner [[To]] an even greater 
 degree if one contracts Alzheimer's. Now psychologists are suggesting that the hippocampus can 
 be modestly expanded, and memory improved, by nothing more than regular walking. 
 Read the full article 
 GTX's New Patent...Smart Shoe Has Heart In Its Sole (GPS) 
 Satnews Daily - February 09, 2011 - GTX Corp (OTCBB: GTXO) has a big heart that is 
-manifested in their sole. GTX, known for customizable, 2-way GPS Personal Location Services 
+manifested in their sole. GTX, known for customizable, 2[[-]]way GPS Personal Location Services 
 (PLS) solutions, was granted its ninth patent for their innovative and potentially life saving GPS 
 Smart Shoe technology. 
 By the year 2050, there will be 16 million adults with Alzheimer's in the U.S. alone. The multi 
-patent GPS Smart ShoeTM will afford millions of caregivers the means to remotely monitor those 
-afflicted with Alzheimer's that become lost due to wondering. 
+patent GPS Smart ShoeTM will afford millions of caregivers the means [[To]] remotely monitor those 
+afflicted with Alzheimer's that become lost due [[To]] wondering. 
 Read the full article 
-GPS Shoes — Footsteps to the Future... 
+GPS Shoes — Footsteps [[To]] the Future... 
 World Market Media - Brittney Barrett - February 7, 2011 
-Every 70 seconds, someone in America develops Alzheimer's, according to the Alzheimer's 
-Association 60% will wander away from their homes or care facilities at some point during their 
-affliction with the disease. Worse, it's even more difficult to find a missing senior citizen than a 
+Every 70 seconds, someone in America develops Alzheimer's, according [[To]] the Alzheimer's 
+Association 60% will wander away [[From]] their homes or care facilities at some point during their 
+affliction with the disease. Worse, it's even more difficult [[To]] find a missing senior citizen than a 
 missing child, as fewer people will take note of older person walking alone than they would a 
 small child. 
 Read the full article 
 GPS Tracking Technology — How it works 
 HOUSE OVERSIGHT 032072 
 GPS Tracking Apps are available for most smartphones. 
-Watch this video to learn how GPS Tracking Technology works and what it can do for you. 
+Watch this video [[To]] learn how GPS Tracking Technology works and what it can do for you. 
 GPS Tracking Apps installed on over 850,000 smart phones 
 GPS Tracking Apps by LOCiMOBILE are installed on over 850,000 smart phones in over 106 
 countries. 
-LOCiMOBILE is a leader in 2-way GPS Tracking Solutions providing the ability to find your 
+LOCiMOBILE is a leader in 2[[-]]way GPS Tracking Solutions providing the ability [[To]] find your 
 loved ones quickly and easily with one touch of a finger. But don't stop there, get creative with it; 
-track your drivers in real-time, see when your relatives land at the airport... with turn by turn 
+track your drivers in real[[-]]time, see when your relatives land at the airport... with turn by turn 
 directions, you will never get lost again! 
 Read the full article 
 Locimobile GPS Tracker App Now for the iPad 
-Well it looks like the iPad's next leap is to become a GPS tracker. Locimobile, which makes GPS 
-Tracking Apps for iPhones, iPods and smartphones is now taking on the iPad. From the comfort of 
+Well it looks like the iPad's next leap is [[To]] become a GPS tracker. Locimobile, which makes GPS 
+Tracking Apps for iPhones, iPods and smartphones is now taking on the iPad. [[From]] the comfort of 
 your own home and on a much bigger screen, you can keep tabs on your spouse or kids and see in 
 greater detail than before, where they are off too or hanging out. Will the iPad be the cause for the 
-next big celebrity break-up?! Who knows but in the mean time you can use it to keep tabs on your 
+next big celebrity break[[-]]up?! Who knows but in the mean time you can use it [[To]] keep tabs on your 
 own family for only $4.99 
-Proximity marketing will push Location Based Services revenues to nearly $13 Billion 
-Knowing where you are will give you the answer to the "where is" question. 
-Recent developments in GPS positioning technologies could drive revenues from mobile location-
-based services to more than $12.7 billion by 2014, according to a new report published by Juniper 
+Proximity marketing will push Location Based Services revenues [[To]] nearly $13 Billion 
+Knowing where you are will give you the answer [[To]] the "where is" question. 
+Recent developments in GPS positioning technologies could drive revenues [[From]] mobile location-
+based services [[To]] more than $12.7 billion by 2014, according [[To]] a new report published by Juniper 
 Research. 
-Revenues will come from sales of apps through application stores and other channels, but also 
-from mobile advertising tied to those apps. In fact, the Juniper report notes that advertising will 
-likely form an increasing share of Mobile Location Based Services-related revenues over the next 
+Revenues will come [[From]] sales of apps through application stores and other channels, but also 
+[[From]] mobile advertising tied [[To]] those apps. In fact, the Juniper report notes that advertising will 
+likely form an increasing share of Mobile Location Based Services[[-]]related revenues over the next 
 five years. 
 HOUSE OVERSIGHT 032073 
 Read the full article 
@@ -175,16 +174,16 @@ GPS Technology Mentioned In State of the Union Address as Growth Driver
 World Market Media - Brittney Barrett - January 26, 2011 
 "The rules have changed. In a single generation, revolutions in technology have transformed ____ 
 the way we live, work and do business" said President Barack Obama last night, during his second 
-State Of The Union address to the 112th Congress of the United States and 1.3 million Americans 
-watching the speech from their homes. 
+State Of The Union address [[To]] the 112th Congress of the United States and [[1]].3 million Americans 
+watching the speech [[From]] their homes. 
 Read the full article 
-Patrick Bertagna interview with Bob McCormick from CBS Los Angeles, Money 101 
+Patrick Bertagna interview with Bob McCormick [[From]] CBS Los Angeles, Money 101 
 January 17, 2011 - Being an apps developer can pay off handsomely 
 when you fill a need. 
-Click here to listen to the interview 
+Click here [[To]] listen [[To]] the interview 
 LBSN — What It Is And Why You Should Care 
 Marsha Ahrenkiel - January 13, 2011 - Shades of The Island of Dr. Moreau! (hint: Google H.G. 
-Wells) Modem-day mad scientists (let's call them "software developers") have been merging 
+Wells) Modem[[-]]day mad scientists (let's call them "software developers") have been merging 
 social networking concepts with a range of other technologies and rolling out new hybrid beasts 
 that could eventually change your marketing and public relations strategies. 
 One that we're keeping a close eye on here is a species known as "location based social 
@@ -193,124 +192,124 @@ technologies and GPS capabilities.
 Read the full article 
 GTX Corp - Year in Review 2010 
 SatMagazine - December 2010 - GTX Corp is in the business of keeping you connected — __ 
-the Company continues to be at the forefront of the personal location industry and debuting new 
+the Company continues [[To]] be at the forefront of the personal location industry and debuting new 
 technologies that impact how you ask the "where is" question. 
 HOUSE OVERSIGHT 032074 
 Read the full article 
 Future Family: Life In the Digital Age preview. 
 The Discovery Channel - Nov. 13, 2010 - This patient education program explores how 
-baby boomers the 78 million Americans born in the wake of World War II are embracing 
-technology to better manage increased work and home responsibilities. Future Family discusses 
+baby boomers the 78 million Americans born in the wake of World War [[Ii]] are embracing 
+technology [[To]] better manage increased work and home responsibilities. Future Family discusses 
 the GPS footwear by GTX Corp. 
-View the show - Part I 
+View the show - Part [[I]] 
 View the show - Part 2 
-Wireless Technology on Black Friday: Smart Phones Good, PNDs Bad According to 
+Wireless Technology on Black Friday: Smart Phones Good, PNDs Bad According [[To]] 
 WedBush 
-World Market Media - Tom Copeland - December 1, 2010 - 
+World Market Media - [[Tom]] Copeland - December [[1]], 2010 - 
 The biggest holiday shopping days of the year has passed and many 
-investors want to know: How did wireless technology do? According to Scott Sutherland, CFA 
+investors want [[To]] know: How did wireless technology do? According [[To]] Scott Sutherland, CFA 
 with Wedbush Securities, the answer is pretty good — depending on which companies you're 
 invested in. 
 Read the full article 
 Andrew Carle on Elder Tech Trends 
-Eldergadget.com - November 5, 2010 - ElderGadget's Michael Goldman starts the series 
+Eldergadget.[[Com]] - November 5, 2010 - ElderGadget's [[Michael]] Goldman starts the series 
 with a conversation with Andrew Carle, an Assistant Professor at George Mason University. 
 Andrew is also an expert on technology development for seniors, and is a consultant for the 
-Nintendo Corp., GTX Corp., and several other companies about how to make their newest gadgets 
+Nintendo Corp., GTX Corp., and several other companies about how [[To]] make their newest gadgets 
 more elder friendly. 
-Listen to Podcast interview with Andrew Carle 
+Listen [[To]] Podcast interview with Andrew Carle 
 How does a GPS tracking system work? 
 HOUSE OVERSIGHT 032075 
 Patrick Bertagna, GTX Corp. - 10/26/2010 - Global Positioning System (GPS) is a 
-worldwide radio-navigation system formed from the constellation of 24 satellites and their ground 
+worldwide radio[[-]]navigation system formed [[From]] the constellation of 24 satellites and their ground 
 stations. The Global Positioning System is mainly funded and controlled by the U.S Department of 
 Defense (DOD). The system was initially designed for the operation of U. S. military. But today, 
-there are also many civil users of GPS across the whole world. The civil users are allowed to use 
+there are also many civil users of GPS across the whole world. The civil users are allowed [[To]] use 
 the Standard Positioning Service without any kind of charge or restrictions. 
 Read the full article 
 GPS Elder Applications 
-Eldergadget.com - October 21, 2010 - The rapid evolution of Global Positioning Satellite 
-(GPS) tracking technology is producing new applications of particular interest to seniors, their 
+Eldergadget.[[Com]] - October 21, 2010 - The rapid evolution of Global Positioning Satellite 
+(GPS) tracking technology is producing new applications of particular interest [[To]] seniors, their 
 families, and caregivers. One of the most active companies in this space is GTX Corp. GTX is the 
 company behind the patented GPS Smart ShoeTM , in partnership with footwear manufacturer 
-Aetrex Worldwide. The shoe was developed to provide peace of mind for families with senior-age 
-loved ones suffering from Alzheimer's and other forms of dementia. Available on the Internet at 
-the GPS Shoe, Aetrex, and Foot.com sites, the shoe should also be available in retail stores some 
-time in 2011, according to GTX Corp. chairman/president Patrick Bertagna. 
+Aetrex Worldwide. The shoe was developed [[To]] provide peace of mind for families with senior[[-]]age 
+loved ones suffering [[From]] Alzheimer's and other forms of dementia. Available on the Internet at 
+the GPS Shoe, Aetrex, and Foot.[[Com]] sites, the shoe should also be available in retail stores some 
+time in 2011, according [[To]] GTX Corp. chairman/president Patrick Bertagna. 
 Read the full story 
-The "Where" or Your Social Media Network - iCheck-In 
-World Market Media - Tom Copeland - November 15, 2010 - 
-Checking in is a movement that's really starting to catch on, and 
-companies are scrambling to develop and release check-in apps and services. GTX Corp 
-committed to being the "better people finder", owns and operates LOCiMOBILE, Inc. which 
+The "Where" or Your Social Media Network - iCheck[[-]]In 
+World Market Media - [[Tom]] Copeland - November 15, 2010 - 
+Checking in is a movement that's really starting [[To]] catch on, and 
+companies are scrambling [[To]] develop and release check[[-]]in apps and services. GTX Corp 
+committed [[To]] being the "better people finder", owns and operates LOCiMOBILE, Inc. which 
 developsGPS Tracking location based social networking (LBSN) mobile applications, today 
-released its 17th App - iCheck-In, the fastest and easiest way to "check-in" and stay connected to 
+released its 17th App - iCheck[[-]]In, the fastest and easiest way [[To]] "check[[-]]in" and stay connected [[To]] 
 everyone in your mobile contact list and your Facebook and Twitter friends. 
 HOUSE OVERSIGHT 032076 
 Read the full story 
 App News 
 On Saturday, CBS News broadcasted a segment on The Early Show called "Unique Ways on ___ 
 Keeping Kids Safe on Halloween" in which CNET technology contributor Katie Linendoll 
-showcased a few charming gadgets to help track children while they're out and about. Naturally, 
+showcased a few charming gadgets [[To]] help track children while they're out and about. Naturally, 
 GTX Corp's iPhone, iPad, Android and Samsung GPS Tracking Apps iLoci2 and GPS Tracking 
-Pro were highlighted for their easy-to-use yet powerful features. 
+Pro were highlighted for their easy-[[To]]-use yet powerful features. 
 View the show 
 Patrick Bertagna GTX Corp CEO on the Peggy Smedley Show 
 Oct. 26, 2010 - wsRadio 
-Listen to an interview with 
+Listen [[To]] an interview with 
 Patrick Bertagna, GTX Corp CEO, 
 on The Peggy Smedley Show 
-Click here to listen 
+Click here [[To]] listen 
 GPS Smart Shoe TM Wins 2010 People's Choice Award 
 LOS ANGELES, Oct. 12, 2010 (GLOBE NEWSWIRE) - 
 GTX Corp (OTCBB:GTX0 - News) has won the prestigious 2010 People's Choice Award for 
 Most Innovative Connected Location Device at the 4th Annual Locations & Beyond Summit this 
 past week. 
-"We are honored to have won this prestigious award and look forward to continue to bring 
+"We are honored [[To]] have won this prestigious award and look forward [[To]] continue [[To]] bring 
 innovative and game changing technologies that transform how we utilize GPS tracking and stay 
-connected to one another," says Patrick Bertagna, CEO and founder of GTX Corp. 
+connected [[To]] one another," says Patrick Bertagna, CEO and founder of GTX Corp. 
 Read the full story 
 Wall Street Reporter Interview 
 Audio interview with Patrick Bertanga, CEO, GTX Corp 
 HOUSE OVERSIGHT 032077 
-Click here and then on Audio MP3 button to listen to the interview. 
-Safety afoot, via GPS, for Alzheimer's patients 
-USA Weekend - PEGGY J. NOONAN - October 17, 2010 
+Click here and then on Audio MP3 button [[To]] listen [[To]] the interview. 
+Safety afoot, [[Via]] GPS, for Alzheimer's patients 
+USA Weekend - PEGGY [[J]]. NOONAN - October 17, 2010 
 A tiny GPS chip embedded in the sole of the shoe provides continuous tracking ... The GPS Shoe 
-by Aetrex is available from Foot.com and GPSShoe.com now for ... 
+by Aetrex is available [[From]] Foot.[[Com]] and GPSShoe.[[Com]] now for ... 
 Read the full story 
 GTX Corp. (OTCBB: GTXO) Wins 2010 Peoples Choice Award 
-Tom Copeland - October 11, 2010 - World Market Media 
+[[Tom]] Copeland - October 11, 2010 - World Market Media 
 The GPS Smart ShoeTM was nominated for Most Innovative Location 
 Connected Device at the Locations and Beyond Summit that was held 
 last week during the CTIA show and CEO Patrick Bertagna confirmed with us - GTXO had won! 
 Read the full story 
 With 675,000 Downloads in 91 Countries GPS Tracking Apps Leader GTX Corp Launches 3 
 New GPS and LBS Apps 
-GPS Tracking Apps Keep You Connected to Everyone, Everywhere 
+GPS Tracking Apps Keep You Connected [[To]] Everyone, Everywhere 
 LOS ANGELES,CA - Tuesday, September, 28th 2010 - GTX Corp business unit LOCiMOBILE, 
 Inc. is launching a series of GPS and personal location - based "apps" and web services solidifying 
 its leadership position in the mobile LBS market, which mobile carriers are calling "Pure Gold". 
 Read the full story 
 Not All Who Wander Are Lost 
 Donna Fannin - Gather News Technology - October 17, 2010 
-GPS shoes are coming to a retailer near you. Why in the world would anyone want a 
+GPS shoes are coming [[To]] a retailer near you. Why in the world would anyone want a 
 GPS tracker in their shoes, you ask? Generally, they don't, if they know about it. 
 Read the full story 
 People Choice Tries on GPS Smart Shoe 
 HOUSE OVERSIGHT 032078 
 By Peter Suciu - Kinetic Shift - October 13, 2010 
 While there are many tracking programs out there for children and even teens, GTX Corp 
-introduced an innovative product aimed at adults suffering from Alzheimer's disease and other 
-dementias. Many sufferers are actually in good physical condition and thus aren't confined to a 
-room or even a house. To keep track of loved ones, the company came up with a novel idea — 
+introduced an innovative product aimed at adults suffering [[From]] Alzheimer's disease and other 
+dementias. Many sufferers are actually in good physical condition and thus aren't confined [[To]] a 
+room or even a house. [[To]] keep track of loved ones, the company came up with a novel idea — 
 namely putting a tracking device in the footwear. 
 Read the full story 
 GTX Corp... Phone Finder (GPS) 
 Satnews Daily - September 28, 2010 
 GTX Corp (OTCBB: GTX0.0B) business unit LOCiMOBILE, Inc. is launching a series of GPS 
-and personal location-based "apps" and web services. 
-The new apps all have a GPS component and are designed to add the "where is" factor to 
+and personal location[[-]]based "apps" and web services. 
+The new apps all have a GPS component and are designed [[To]] add the "where is" factor [[To]] 
 functionality. The Company launched on the Android market place Phone TrackingTm in case you 
 lose or misplace your phone. More than 70 million phones are reported lost or stolen in the US 
 each year, but while the loss of a phone may be annoying, the loss of personal and business data 
@@ -318,19 +317,19 @@ could be devastating.
 Read the full story 
 Gadgets -These Shoes Were Made for Tracking 
 By Erin Monda - TMCnet Contributor - September 22, 2010 
-There is no end to the wonderments that shoes can achieve (a certain pair of ruby Mary Janes 
-comes to mind) — and one company is pushing the envelope even further (although not quite as far 
+There is no end [[To]] the wonderments that shoes can achieve (a certain pair of ruby Mary Janes 
+comes [[To]] mind) — and one company is pushing the envelope even further (although not quite as far 
 as Oz). 
-I'm referring to GTX, a company integrating two-way GPS people-finding technologies into 
+[[I]]'m referring [[To]] GTX, a company integrating two[[-]]way GPS people[[-]]finding technologies into 
 consumer products and applications. The company utilizes the latest in miniaturized global 
-positioning system (GPS) tracking and cellular location technology, enabling subscribers to track 
+positioning system (GPS) tracking and cellular location technology, enabling subscribers [[To]] track 
 in real time the whereabouts of people, pets, or high valued assets through its customizable 
 HOUSE OVERSIGHT 032079 
 transceiver module, wireless connectivity gateway, middleware, and viewing portals. 
 Read the full story 
-Costs of Alzheimer's will touch 1% of Global GDP in 2010 
+Costs of Alzheimer's will touch [[1]]% of Global GDP in 2010 
 By World Market Media 
-The rising need for GTX Corp's technology continues to be influenced by the increasing numbers 
+The rising need for GTX Corp's technology continues [[To]] be influenced by the increasing numbers 
 of elderly and those that are memory impaired, and so the epic battle of technology and illness 
 wages on. ... 
 Read the full story 
@@ -339,139 +338,139 @@ No it's not a compass or an astrolabe. It's not semaphore or a smoke signal. Not
 neon sign or phosphorous flare either. 
 Give up? 
 It's the GPS Smart ShoeTM recently mentioned in Forbes Magazine, developed by GTX Corp 
-(OTCBB: GTX0.0B) and licensed to Aetrex Worldwide. Yes, a shoe. .well a very smart shoe as 
+(OTCBB: GTX0.0B) and licensed [[To]] Aetrex Worldwide. [[Yes]], a shoe. .well a very smart shoe as 
 it can tell a caregiver the precise location, bearing, history, speed and altitude of an Alzheimer's 
-victim that has eloped or wandered. No small feat — pun intended — to reduce the overwhelming 
-stress on the millions of victim caregivers while potentially saving thousands from injuries and 
-death owing to exposure, accidents and criminal activity. The GPS Shoe also reduces the 
-manpower drain on municipal services; fire, police and welfare agencies often enlisted to locate 
+victim that has eloped or wandered. No small feat — pun intended — [[To]] reduce the overwhelming 
+stress on the millions of victim caregivers while potentially saving thousands [[From]] injuries and 
+death owing [[To]] exposure, accidents and criminal activity. The GPS Shoe also reduces the 
+manpower drain on municipal services; fire, police and welfare agencies often enlisted [[To]] locate 
 the mentally ill. 
 While a Finalist in the Most Innovative Location Device category of the Locations & Beyond 
 Summit and the People's Choice Awards is a wonderful acknowledgment for the years GTXO 
-invested in developing the solution and the promise that Aetrex has made in bringing the Shoe to 
+invested in developing the solution and the promise that Aetrex has made in bringing the Shoe [[To]] 
 market... the real winners are those touched by this devastating disease for which there is no cure, 
 but now have a new measure of hope. 
 'Nanatech': Seniors Stay Independent With Tech Gadgets 
 Senior Tech - Ashlea Ebeling, 09.15.10 
 HOUSE OVERSIGHT 032080 
-The GPS shoes from GTX ( GTXO - news - people ) tackle another senior problem--folks 
+The GPS shoes [[From]] GTX ( GTXO - news - people ) tackle another senior problem--folks 
 who have Alzheimer's who wander and are at risk of getting lost or injured. A GPS device in one 
 of the shoes will alert a caregiver if the wearer leaves a specified area. Don't expect the latest 
-styles from Nike ( NKE - news - people ) or Steve Madden ( shoo - news - people ) . The 
-manufacturer is Aetrex Worldwide, an orthodic and medical specialty shoe maker. Roll-out is 
+styles [[From]] Nike ( NKE - news - people ) or Steve Madden ( shoo - news - people ) . The 
+manufacturer is Aetrex Worldwide, an orthodic and medical specialty shoe maker. Roll[[-]]out is 
 expected by year's end. 
 Read the full story 
 Keeping an eye on Mom and Dad 
-Remote monitoring technology aims to keep seniors in their houses and out of nursing homes ____ 
-Over the coming months a raft of new-and-improved remote monitoring devices will hit the _____ 
-market, from GPS shoes that can track the whereabouts of wandering seniors to MedCottages, 
-portable RV-like units equipped with motion and monitoring systems that allow seniors to 
-maintain some independence from the backyard of their adult childrens' homes. 
-"As we age, this is going to be a growing trend," says Laurie Orlov, a Florida-based expert on so-
-called "aging-in-place technology" aimed at keeping seniors in their houses and out of nursing 
+Remote monitoring technology aims [[To]] keep seniors in their houses and out of nursing homes ____ 
+Over the coming months a raft of new[[-]]and[[-]]improved remote monitoring devices will hit the _____ 
+market, [[From]] GPS shoes that can track the whereabouts of wandering seniors [[To]] MedCottages, 
+portable RV[[-]]like units equipped with motion and monitoring systems that allow seniors [[To]] 
+maintain some independence [[From]] the backyard of their adult childrens' homes. 
+"As we age, this is going [[To]] be a growing trend," says Laurie Orlov, a Florida[[-]]based expert on so-
+called "aging[[-]]in[[-]]place technology" aimed at keeping seniors in their houses and out of nursing 
 homes as long as possible. 
-"We have to get past the fear and antagonism among the older people who need it the most. I don't 
-think they're that technology-ready, but the boomers, who are their adult children, certainly are." 
-Motion sensors strategically placed in the three-bedroom home where Howe has lived for 53 years 
-feed information right to her daughter's laptop, detailing when she got out of bed (the Friday we 
+"We have [[To]] get past the fear and antagonism among the older people who need it the most. [[I]] don't 
+think they're that technology[[-]]ready, but the boomers, who are their adult children, certainly are." 
+Motion sensors strategically placed in the three[[-]]bedroom home where Howe has lived for 53 years 
+feed information right [[To]] her daughter's laptop, detailing when she got out of bed (the Friday we 
 chatted it was 9 a.m.), walked into the bathroom (9:15 a.m.) or hovered at the kitchen table where 
 she keeps her pills (9:30 a.m.) 
-Even her blood-pressure reading (165/76) is fed to her daughter's computer, along with her daily 
-weigh-in tally, providing a detailed graph which she often takes to her doctor appointments. 
+Even her blood[[-]]pressure reading (165/76) is fed [[To]] her daughter's computer, along with her daily 
+weigh[[-]]in tally, providing a detailed graph which she often takes [[To]] her doctor appointments. 
 The only thing GrandCare can't tell Pierce, because her system doesn't include cameras, is if her 
 mother actually swallowed her pills. 
-Monitoring and in-home help technologies will be a $20 billion U.S. business in North America by 
+Monitoring and in[[-]]home help technologies will be a $20 billion U.S. business in North America by 
 2020, predicts Orlov, founder of Aging In Place Technology Watch. 
 HOUSE OVERSIGHT 032081 
-Already some baby boomers are able to remotely lock their parents' doors, track calls coming into 
-their homes and even see who is ringing the doorbell, in many cases right from their smart phones. 
+Already some baby boomers are able [[To]] remotely lock their parents' doors, track calls coming into 
+their homes and even see who is ringing the doorbell, in many cases right [[From]] their smart phones. 
 Systems such as QuietCare, WellAWARE, FineThanx and SimplyHome are already fixtures in 
 some U.S. homes and seniors' communities, although Orlov estimates fewer than 10,000 units are 
 in active use because the systems can be so costly. 
-Next month, Paul Whyte, a Markham dealer of smart-home technology that allows ordinary 
-electronics and appliances to communicate with each other, will unveil the GrandCare system at 
+Next month, Paul Whyte, a Markham dealer of smart[[-]]home technology that allows ordinary 
+electronics and appliances [[To]] communicate with each other, will unveil the GrandCare system at 
 the Zoomer show in Toronto. 
-"I call it the invisible caregiver," says Whyte of Cybernetics Systems Inc. "The minute I saw this 
-system I thought, 'There's something that actually makes sense.' 
-The key, of course, with all these technologies is that the senior be relatively able-bodied and 
-sound of mind — most are of limited value if the senior is suffering from dementia, which is 
-expected to become a major public health issue in the next few decades. 
+"[[I]] call it the invisible caregiver," says Whyte of Cybernetics Systems Inc. "The minute [[I]] saw this 
+system [[I]] thought, 'There's something that actually makes sense.' 
+The key, of course, with all these technologies is that the senior be relatively able[[-]]bodied and 
+sound of mind — most are of limited value if the senior is suffering [[From]] dementia, which is 
+expected [[To]] become a major public health issue in the next few decades. 
 But developers are also working hard on that challenging front. 
-Sometime later this fall or next spring the first GPS-equipped shoe, the Aetrex Ambulator, will go 
+Sometime later this fall or next spring the first GPS[[-]]equipped shoe, the Aetrex Ambulator, will go 
 on sale through www.gpsshoe.com orwww.foot.com. 
-Originally designed for children by Los Angeles-based GTX Corp., the new shoes are expected to 
-retail for about $250 U.S. They enable caregivers to track those afflicted with dementia or 
-Alzheimer's thanks to GPS and cellular technology that will relay their whereabouts back to a 
+Originally designed for children by Los Angeles[[-]]based GTX Corp., the new shoes are expected [[To]] 
+retail for about $250 U.S. They enable caregivers [[To]] track those afflicted with dementia or 
+Alzheimer's thanks [[To]] GPS and cellular technology that will relay their whereabouts back [[To]] a 
 monitoring centre. 
 "Privacy may be a talking point, but it's not really an issue," says Patrick Bertagna, chairman and 
 CEO of GTX Corp. 
 MEDCottage creator Dupin expects concerns around privacy will fade quickly as families and 
-health-care systems here and in the U.S. become overwhelmed by aging baby boomers — more 
+health[[-]]care systems here and in the U.S. become overwhelmed by aging baby boomers — more 
 than 76 million in the U.S., 10 million in Canada — who start hitting 65 next year. 
-"I see remote monitoring becoming an integral part of health care as we all age," says Dupin. "One 
-of the issues around aging in place is going to be making trade-offs. Privacy may be something we 
-have to give up." 
+"[[I]] see remote monitoring becoming an integral part of health care as we all age," says Dupin. "One 
+of the issues around aging in place is going [[To]] be making trade[[-]]offs. Privacy may be something we 
+have [[To]] give up." 
 HOUSE OVERSIGHT 032082 
 Susan Pigg focuses on issues about aging and baby boomers. spigg@thestar.ca 
 Tracking Deal 
-A downtown L.A. company that creates GPS tracking applications for cell phones has 
-announced a deal to provide its friend-finding apps on Samsung smart phones. 
-The deal could mean more than 40 million more downloads, which would translate to increased 
+A downtown [[L]].A. company that creates GPS tracking applications for cell phones has 
+announced a deal [[To]] provide its friend[[-]]finding apps on Samsung smart phones. 
+The deal could mean more than 40 million more downloads, which would translate [[To]] increased 
 revenue, for GTX Corp.'s application, which is currently available for the iPhone, BlackBerry and 
 Android phones, said GTX Chief Executive Patrick Bertagna. 
-The LociMobile tracking applications send a GPS signal out to all of a person's cell phone 
-contacts who use the app. Bertagna said the app can be used to meet up with friends or keep tabs 
+The LociMobile tracking applications send a GPS signal out [[To]] all of a person's cell phone 
+contacts who use the app. Bertagna said the app can be used [[To]] meet up with friends or keep tabs 
 on kids. 
 GTX has also developed a GPS shoe for tracking Alzheimer's patients. 
 Staff reporter Natalie Jarvey can be reached atnjarvey@labusinessjournaLcom or at (323) 549-
 5225, ext. 230. 
 Read the full story 
-Senior Gadgets: GPS Shoe May Offer Peace of Mind to Alzheimer's Caregivers 
-By Teresa Steinfatt - July 1, 2010 - Safety of loved ones is a top concern for caregivers, 
+Senior Gadgets: GPS Shoe May Offer Peace of Mind [[To]] Alzheimer's Caregivers 
+By Teresa Steinfatt - July [[1]], 2010 - Safety of loved ones is a top concern for caregivers, 
 especially those caring for persons with Alzheimer's disease. 
 Memory loss and confusion can set in without warning. For example, a loved one might set out on 
-a walk or errand alone, wander off and not be able to return home safely. 
+a walk or errand alone, wander off and not be able [[To]] return home safely. 
 Currently scheduled for retail sale this summer, the Aetrex Ambulator® GPS Shoe by GTX Corp 
-will provide millions of caregivers the means to help easily find those afflicted with Alzheimer's 
+will provide millions of caregivers the means [[To]] help easily find those afflicted with Alzheimer's 
 and other forms of dementia who wander and become lost. 
 Read the full story 
 Style and Safety Come Together with GPS Shoes For Alzheimer's Care 
 GTX Corp (OTCBB: GTXO), a provide of customizable, embedded 
-2-way GPS Personal Location Services (PLS) solutions, is bringing 
-personal GPS tracking solutions to the 5.3 million seniors afflicted with dementia by signing a 
+2[[-]]way GPS Personal Location Services (PLS) solutions, is bringing 
+personal GPS tracking solutions [[To]] the 5.3 million seniors afflicted with dementia by signing a 
 HOUSE OVERSIGHT 032083 
 four year, license agreement with Aetrex Worldwide, Inc. GTX Corp's eight patents for the GPS 
 Shoe cover a GPS transceiver module that is placed within the footwear and transmission of 
-location coordinates to a central monitoring station which disseminates the location data through 
+location coordinates [[To]] a central monitoring station which disseminates the location data through 
 the use of proprietary software, cellular connectivity, the GTX Corp middleware platform and the 
 secure viewing portal. 
 Read the full story - World Market Media 
 Wandering Soles 
-Aetrex Worldwide Inc. has teamed with GTX Corp. to create the Aetrex Ambulator GPS 
+Aetrex Worldwide Inc. has teamed with GTX Corp. [[To]] create the Aetrex Ambulator GPS 
 Shoe, a therapeutic sneaker designed for people with Alzheimer's disease. The shoe comes with a 
 tiny GPS tracker that alerts a caregiver when the wearer has strayed more than a set distance. It 
 then sends the caregiver a Google map link that plots the wearer's location. 
 Read the full story 
-GTX And MNX - STAT Trax Critical Medical and Bio-Pharmas 
+GTX And MNX - STAT Trax Critical Medical and Bio[[-]]Pharmas 
 SatNews - June 9, 2010 - GTX Corp (OTCBB: GTX0.0B), a provider in embedded GPS 
 tracking location based services and MNX (Midnite Express), a worldwide specialty courier, have 
-entered into an exclusive three-year contract for GTX to deliver thousands of highly customized, 
-industry-first GPS tracking devices. Additionally, the GTX Corp tracking platform to the shipping 
+entered into an exclusive three[[-]]year contract for GTX [[To]] deliver thousands of highly customized, 
+industry[[-]]first GPS tracking devices. Additionally, the GTX Corp tracking platform [[To]] the shipping 
 company is included in the contract. 
 Read the full story 
 Find Friends and Family Mobile Apps 
 LOCiMOBILE [iPhone & Android] 
-LOCiMOBILE has a few great GPS tracking apps out at the moment. The two that I would like to 
-feature are the free/lite versions of the software. This app supports up to 6 users (paid version is 
+LOCiMOBILE has a few great GPS tracking apps out at the moment. The two that [[I]] would like [[To]] 
+feature are the free/lite versions of the software. This app supports up [[To]] 6 users (paid version is 
 unlimited) and integrates with Twitter and Facebook. GPS Tracking populates your phone's built-
-in Google Maps with the locations of people in your private opt-in buddy list. You can let users 
+in Google Maps with the locations of people in your private opt[[-]]in buddy list. You can let users 
 HOUSE OVERSIGHT 032084 
-know where you are or request their location, and you can post your information to your social 
+know where you are or request their location, and you can post your information [[To]] your social 
 profiles. 
 Read the full story 
-GPS Tracking Apps Website to Track iPad, iPhone, Android, Blackberry Smart Phones 
-Want to locate all your friends with smart phones (ipad, ipod, iphone, android, blackberry) but you 
-don't have one? The latest technology from GTX Corp allows you to do just that — 
+GPS Tracking Apps Website [[To]] Track iPad, iPhone, Android, Blackberry Smart Phones 
+Want [[To]] locate all your friends with smart phones (ipad, ipod, iphone, android, blackberry) but you 
+don't have one? The latest technology [[From]] GTX Corp allows you [[To]] do just that — 
 www.gpstrackingapps.com high-tech website enables you to locate your family, friends and 
 coworkers (who have downloaded the GPS Tracking App) instantly, in real time, even if you don't 
 have a smart phone. http andwww.locimobile.com are proud members of the http GTX Corp 
@@ -481,11 +480,11 @@ gps apps, iPad, blackberry, gps shoe, GTXO, gtxcorp, top apple downloads
 Read the full story 
 Style and Safety Come Together with GPS Shoes For Alzheimer's 
 Senior Housing News - GTX Corp (OTCBB: GTXO), a provide of customizable, embedded 
-2-way GPS Personal Location Services (PLS) solutions, is bringing personal GPS tracking 
-solutions to the 5.3 million seniors afflicted with dementia by signing a four year, ... 
+2[[-]]way GPS Personal Location Services (PLS) solutions, is bringing personal GPS tracking 
+solutions [[To]] the 5.3 million seniors afflicted with dementia by signing a four year, ... 
 Read the full story 
 Keeping track of seniors with Alzheimer's 
-Rosemary McClure, Special to the Los Angeles Times - May 29, 2010 - The email alert 
+Rosemary McClure, Special [[To]] the Los Angeles Times - May 29, 2010 - The email alert 
 shouted its message: "Missing Person with Alzheimer's. PLEASE HELP." It was sent to 
 Alzheimer's Assn. chapters and to law enforcement officials within hours after an Orange County 
 woman disappeared while on a short trip to visit a friend. 

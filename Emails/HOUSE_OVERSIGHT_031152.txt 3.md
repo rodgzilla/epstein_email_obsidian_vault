@@ -6,5 +6,5 @@ date: "2011-11-09 07:44:00"
 ---
 
 call me 133144170210 
-On Wed, Nov 9, 2011 at 1:28 PM, Weingarten, Reid > wrote: 
+On Wed, Nov 9, 2011 at [[1]]:28 PM, [[Weingarten]], [[Reid]] > [[Wrote]]: 
 Laughing very hard... are you there?

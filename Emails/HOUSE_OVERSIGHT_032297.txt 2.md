@@ -5,8 +5,8 @@ receiver: "[[Lang; Caroline]]"
 date: 
 ---
 
-Can I have Castro number, I'm outside gran palais 
-On Monday, 26 September 2016, jeffrey E. <jeevacation@gmail.com> wrote: 
+Can [[I]] have Castro number, [[I]]'m outside gran palais 
+On Monday, 26 September 2016, [[Jeffrey]] E. <jeevacation@gmail.com> [[Wrote]]: 
 Ok 
-On Monday, 26 September 2016, Lang, Caroline 
+On Monday, 26 September 2016, [[Lang]], [[Caroline]] 
 Alone, a lot of officials will be there Ministers...

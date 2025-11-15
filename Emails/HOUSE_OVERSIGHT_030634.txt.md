@@ -6,4 +6,4 @@ date:
 ---
 
 Where are you? Not answering your cell 
-what the f... Does going to open lk down not good... Trump is saying its a great thing really???
+what the f... Does going [[To]] open lk down not good... Trump is saying its a great thing really???

@@ -5,7 +5,7 @@ receiver: "[[Joi Ito]]"
 date: "2016-12-12 19:52:15"
 ---
 
-talk to danny hillis he had some legisative ideas 
-On Mon, Dec 12, 2016 at 1:26 PM, Joi Ito <___________________ wrote: 
+talk [[To]] danny hillis he had some legisative ideas 
+On Mon, Dec 12, 2016 at [[1]]:26 PM, [[Joi]] Ito <___________________ [[Wrote]]: 
 Any ideas? 
-Begin forwarded message:
+Begin [[Forwarded Message]]:

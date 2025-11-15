@@ -7,13 +7,13 @@ date:
 
 Text Only You Have Photo 
 HOUSE OVERSIGHT 031192 
-Steven J. Hoffenberg 
+[[Steven J. Hoffenberg]] 
 New York Post Publishing INC. 
 C E 
-TOWERSINVESTORS.COM  
+TOWERSINVESTORS.[[Com]]  
 C E 
 SEE 
 VVWW.POST PUBLISHING.BUZZ THE JESUS CHRIST ON LINE GODs WORD NEWSPAPER 
 MR HOFFENBERG ONLINE NEWSPAPER 
-PUBLICSPEAKINGWALLSTREET.COM  
-Begin forwarded message:
+PUBLICSPEAKINGWALLSTREET.[[Com]]  
+Begin [[Forwarded Message]]:

@@ -5,7 +5,7 @@ receiver: "[[Peter Mandelson]]"
 date: "2016-11-06 20:32:09"
 ---
 
-trump/ and having agreat deal of fun. in hindsight. you were right about staying away from andrew. I 
+trump/ and having agreat deal of fun. in hindsight. you were right about staying away [[From]] andrew. [[I]] 
 was right in your staying with rinaldo 
-On Sun, Nov 6, 2016 at 9:30 PM, Peter Mandelson k wrote: 
+On Sun, Nov 6, 2016 at 9:30 PM, [[Peter Mandelson]] k [[Wrote]]: 
 What's the donald white house ? And how are you ?

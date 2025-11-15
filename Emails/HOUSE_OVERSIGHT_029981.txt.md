@@ -6,4 +6,4 @@ date: "2013-03-31 00:54:05"
 ---
 
 Barak Obama? 
-Sent via BlackBerry from T-Mobile
+[[Sent]] [[Via]] BlackBerry [[From]] T[[-]]Mobile

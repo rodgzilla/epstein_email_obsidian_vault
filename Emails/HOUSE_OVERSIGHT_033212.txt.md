@@ -5,11 +5,11 @@ receiver: "[[Subject]]"
 date: 
 ---
 
-Jeffrey — I thought this article on Tom would interest u -- Nick 
+[[Jeffrey]] — [[I]] thought this article on [[Tom]] would interest u -- Nick 
 http://www.cnn.com/2017/01/06/politics/tom-barrack-donald-trump-inauguration/index.html  
 Donald Trump's power broker 
 www.cnn.com 
-Tom Barrack is poised to wield enormous influence in 
+[[Tom]] Barrack is poised [[To]] wield enormous influence in 
 Donald Trump's Washington as the person perhaps closest 
-to the new president outside of his immediate family. 
+[[To]] the new president outside of his immediate family. 
 HOUSE OVERSIGHT 033212

@@ -5,5 +5,5 @@ receiver: "[[Richard Kahn]]"
 date: "2016-10-17 14:39:57"
 ---
 
-; Dlugash, Alan 
-are they taking the deduction ONLY to get the obama care benefit. / ???? call joslin
+; Dlugash, [[Alan]] 
+are they taking the deduction ONLY [[To]] get the obama care benefit. / ???? call joslin

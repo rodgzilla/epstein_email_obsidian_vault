@@ -5,4 +5,4 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2011-05-16 20:08:35"
 ---
 
-Begin forwarded message:
+Begin [[Forwarded Message]]:

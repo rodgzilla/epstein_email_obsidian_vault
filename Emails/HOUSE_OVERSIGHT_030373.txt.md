@@ -6,5 +6,5 @@ date:
 ---
 
 Brutal piece. 
-Sent with BlackBerry Work 
+[[Sent]] with BlackBerry Work 
 (www.blackberry.com)

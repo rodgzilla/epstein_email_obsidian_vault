@@ -5,9 +5,9 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2009-08-05 16:25:51"
 ---
 
-Certified Paralegal 
-Florida Registered Paralegal 
-BURMAN CRITTON LUTTIER & COLEMAN, LLP 
+Certified [[Paralegal]] 
+Florida Registered [[Paralegal]] 
+BURMAN CRITTON LUTTIER & [[Coleman]], LLP 
 515 N. Flagler Drive 
 Suite #400 
 West Palm Beach, FL 33401

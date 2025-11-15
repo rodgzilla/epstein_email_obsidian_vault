@@ -5,4 +5,4 @@ receiver: "[[Subject]]"
 date: 
 ---
 
-nuts but i thought you guys should know
+nuts but [[I]] thought you guys should know

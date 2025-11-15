@@ -6,5 +6,5 @@ date: "2016-03-18 16:18:52"
 ---
 
 Nuts 
-On Friday, 18 March 2016, Kathy Ruemmler <__________________________> wrote: 
-On the shuttle back to NYC. About to take off
+On Friday, 18 March 2016, [[Kathy]] [[Ruemmler]] <__________________________> [[Wrote]]: 
+On the shuttle back [[To]] NYC. About [[To]] take off

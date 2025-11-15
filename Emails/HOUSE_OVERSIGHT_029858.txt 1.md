@@ -6,12 +6,12 @@ date: "2012-08-20 08:42:00"
 ---
 
 Dave, 
-Talk about a small world. I got on the airplane Saturday night and opened up the Palm Beach newspaper and 
-here's what I found (see attached). Remember "Bear", Warren's friend from NY. Well, he is a Billionaire 
-(Literally and really) and always seems to be in the news in South Florida. He competes with Trump on big 
-property deals and seems to be quite the womanizer. The only problem is he goes after some of the young ones 
+Talk about a small world. [[I]] got on the airplane Saturday night and opened up the Palm Beach newspaper and 
+here's what [[I]] found (see attached). Remember "Bear", Warren's friend [[From]] NY. Well, he is a Billionaire 
+(Literally and really) and always seems [[To]] be in the news in South Florida. He competes with Trump on big 
+property deals and seems [[To]] be quite the womanizer. The only problem is he goes after some of the young ones 
 sometimes and must not check there ID's. 
-Oh well, I thought you might get a kick out of this article. What a small world. 
+Oh well, [[I]] thought you might get a kick out of this article. What a small world. 
 Take good care!! 
 Doug 
 HOUSE OVERSIGHT 029858

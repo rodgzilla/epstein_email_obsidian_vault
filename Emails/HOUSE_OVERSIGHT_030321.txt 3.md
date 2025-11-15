@@ -6,5 +6,5 @@ date: "2018-04-09 08:10:00"
 ---
 
 Tomorrow? 
-On Mon, Apr 9, 2018 at 1:44 PM Weingarten, Reid < > wrote: 
+On Mon, Apr 9, 2018 at [[1]]:44 PM [[Weingarten]], [[Reid]] < > [[Wrote]]: 
 Today and tomorrow

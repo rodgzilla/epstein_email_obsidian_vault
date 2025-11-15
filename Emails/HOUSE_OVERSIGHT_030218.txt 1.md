@@ -49,11 +49,11 @@ Making the rope "wet" looking, contrasting the rubbed areas with white, and look
 All the columns are looking different, as somebody would work previously on them, and some of them are over-rubbed, 
 some of them are not rubbed at all. The upper part also, I prepared a sample, so Mr. Epstein can see the difference. 
 Brandon 
-> wrote: 
-On Sun, May 10, 2015 at 9:35 PM, Brandon Thompson > wrote: 
+> [[Wrote]]: 
+On Sun, May 10, 2015 at 9:35 PM, [[Brandon Thompson]] > [[Wrote]]: 
 Dear Richard, 
-It is after 9:20 pm and I tried to text Ann, but she did not answer. My suspicion is, she is already asleep. I will try to send 
-you photos if I can. 
+It is after 9:20 pm and [[I]] tried [[To]] text Ann, but she did not answer. My suspicion is, she is already asleep. [[I]] will try [[To]] send 
+you photos if [[I]] can. 
 HOUSE OVERSIGHT 030219 
-On Sun, May 10, 2015 at 7:49 PM, Richard Kahn 
+On Sun, May 10, 2015 at 7:49 PM, [[Richard Kahn]] 
 Please send photos. Thank you

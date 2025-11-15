@@ -6,4 +6,4 @@ date:
 ---
 
 000 
-a long term invesment i hope 00
+a long term invesment [[I]] hope 00

@@ -5,6 +5,6 @@ receiver: "[[jeevacation@gmail.com]]"
 date: "2018-01-04 15:55:56"
 ---
 
-Yes 
-On Thu, Jan 4, 2018 at 10:31 AM jeffrey E. <jeevacation@gmail.com> wrote: 
-Forwarded message
+[[Yes]] 
+On Thu, Jan 4, 2018 at 10:31 AM [[Jeffrey]] E. <jeevacation@gmail.com> [[Wrote]]: 
+[[Forwarded Message]]

@@ -6,4 +6,4 @@ date: "2011-01-29 00:36:57"
 ---
 
 Agree! 
-Sent from my Samsung JackTM, a Windows Mobile® smartphone from AT&T
+[[Sent]] [[From]] my Samsung JackTM, a Windows Mobile® smartphone [[From]] AT&T

@@ -6,5 +6,5 @@ date: "2017-11-02 10:43:00"
 ---
 
 opinon or knowledge 
-On Thu, Nov 2, 2017 at 1:36 PM, Weingarten, Reid < > wrote: 
-Trump is going to fire mueller and republicans on hill won't do a thing
+On Thu, Nov 2, 2017 at [[1]]:36 PM, [[Weingarten]], [[Reid]] < > [[Wrote]]: 
+Trump is going [[To]] fire mueller and republicans on [[Hill]] won't do a thing

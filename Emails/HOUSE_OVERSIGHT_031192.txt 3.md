@@ -6,14 +6,14 @@ date: "2015-12-24 11:44:20"
 ---
 
 Text Only You Have Photo 
-.11111111 
-Steven J. Hoffenberg 
+.[[11111111]] 
+[[Steven J. Hoffenberg]] 
 New York Post Publishing INC. 
 C E 
-TOWERSINVESTORS.COM  
+TOWERSINVESTORS.[[Com]]  
 C E 
 SEE 
 VVWW.POST PUBLISHING.BUZZ THE JESUS CHRIST ON LINE GODs WORD NEWSPAPER 
 MR HOFFENBERG ONLINE NEWSPAPER 
-PUBLICSPEAKINGWALLSTREET.COM  
-Begin forwarded message:
+PUBLICSPEAKINGWALLSTREET.[[Com]]  
+Begin [[Forwarded Message]]:

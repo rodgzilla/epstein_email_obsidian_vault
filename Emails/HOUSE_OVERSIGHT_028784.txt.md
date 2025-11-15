@@ -5,33 +5,33 @@ receiver: "[[jeevacation@gmail.com]]"
 date: "2012-03-19 17:59:00"
 ---
 
-Seminar-MONEY 
+Seminar[[-]]MONEY 
 Marc Andreesen 
 Paul Batista (Not sure this is who you mean) 
 Jeff Bezos 
 Sergey Brin 
-Bill Gates 
+[[Bill Gates]] 
 Danny Hillis 
 Danny Kahneman 
 Jaron Lanier 
 Dick Merkin (?) 
-Michael Milken (?) 
+[[Michael]] Milken (?) 
 Nathan Myhrvold 
-Boris Nikolic 
-Larry Page 
-Torn Pritzker 
-Eric Schmidt 
+[[Boris Nikolic]] 
+[[Larry]] Page 
+Torn [[Pritzker]] 
+[[Eric]] Schmidt 
 Jim Simons 
-Jes Staley 
-Peter Thiel 
-Ian Osborne (add Ian to both seminar lists?) 
+Jes [[Staley]] 
+[[Peter Thiel]] 
+[[Ian Osborne]] (add Ian [[To]] both seminar lists?) 
 HOUSE OVERSIGHT 028784 
-Seminar-POWER 
+Seminar[[-]]POWER 
 Bill Clinton 
 Howard Gardner 
-Bill Gates 
+[[Bill Gates]] 
 George Mitchell 
-Michael Ovitz 
+[[Michael]] Ovitz 
 Igor (? Not sure who this is) 
-Ian Osborne (add Ian to both seminar lists?) 
+[[Ian Osborne]] (add Ian [[To]] both seminar lists?) 
 HOUSE OVERSIGHT 028785

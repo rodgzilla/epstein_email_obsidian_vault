@@ -5,5 +5,5 @@ receiver: "[[Peggy Siegal]]"
 date: "2011-04-30 17:15:27"
 ---
 
-Peggy, did you want me to send this to JE? 
-Sent via BlackBerry by AT&T
+Peggy, did you want me [[To]] send this [[To]] JE? 
+[[Sent]] [[Via]] BlackBerry by AT&T

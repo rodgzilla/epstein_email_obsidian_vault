@@ -5,7 +5,7 @@ receiver: "[[jeevacation@gmail.com]]"
 date: "2016-10-12 07:53:37"
 ---
 
-I saw this on the BBC News App and thought you should see it: 
+[[I]] saw this on the BBC News App and thought you should see it: 
 silver linin in #Trum iTaies stor 
 While the video of Donald Trump denigrating women has horrified 
 many, the backlash has also showed how much has changed for 

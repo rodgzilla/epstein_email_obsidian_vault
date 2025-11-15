@@ -5,12 +5,12 @@ receiver: "[[Jacquie Johnson]]"
 date: "2009-08-10 12:10:00"
 ---
 
-I didnt forget about this... 
+[[I]] didnt forget about this... 
 Still working on it. 
 frJaca eY, Yccia' 
-Certified Paralegal 
-Florida Registered Paralegal 
-BURMAN CRITTON LUTTIER & COLEMAN, LLP 
+Certified [[Paralegal]] 
+Florida Registered [[Paralegal]] 
+BURMAN CRITTON LUTTIER & [[Coleman]], LLP 
 HOUSE OVERSIGHT 033509 
 515 N. Flagler Drive 
 Suite #400 

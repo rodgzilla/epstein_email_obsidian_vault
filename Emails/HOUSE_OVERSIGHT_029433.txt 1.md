@@ -5,7 +5,7 @@ receiver: "[[Reply-to Inforriw.com]]"
 date: "2018-01-03 16:02:49"
 ---
 
-Reply-To: infoRriw.com  
+Reply-[[To]]: infoRriw.[[Com]]  
 January 2018 
 HOUSE OVERSIGHT 029433 
 Estate Planning After the Enactment of the Tax Cuts 
@@ -13,23 +13,23 @@ and Jobs Act
 On December 22, 2017, President Trump signed the "Tax Cuts and Jobs 
 Act" into law. The new legislation represents a compromise between 
 House and Senate Republicans on their respective tax overhaul 
-proposals, and is the most significant tax reform legislation to be 
+proposals, and is the most significant tax reform legislation [[To]] be 
 enacted in over thirty years. Although the inherent complexities of the 
 new legislation, combined with the whirlwind pace of its passage, poses 
-many questions for analysts and tax practitioners alike as they begin to 
+many questions for analysts and tax practitioners alike as they begin [[To]] 
 navigate the new tax system, we do have an understanding of what the 
 new law will mean for high net worth individuals interested in advancing 
 their estate planning goals. 
 Most of the provisions of the Tax Cuts and Jobs Act (the "Act") became 
-effective on January 1st, and will sunset (or default to prior law) after 
-December 31, 2025, absent further congressional action. In addition to 
-extensive income tax related changes, including modifications to the 
+effective on January 1st, and will sunset (or default [[To]] prior law) after 
+December 31, 2025, absent further congressional action. In addition [[To]] 
+extensive income tax related changes, including modifications [[To]] the 
 individual and corporate income tax rates, doubling of the standard 
 income tax deduction, capping of the state and local tax deduction, 
 elimination of the personal income tax exemption, increase in the 
 exemption for the alternative minimum tax, and decrease in the 
 mortgage interest deduction, the Act temporarily doubles the federal 
-estate, generation-skipping transfer ("GST") and gift tax exemption 
+estate, generation[[-]]skipping transfer ("GST") and gift tax exemption 
 amounts, thereby offering high net worth families enhanced planning 
 opportunities. 
 Full Alert 
@@ -38,46 +38,46 @@ Deborah Pechet
 Quinan  
 Chair, Trusts & 
 Estates Group  
-dpq@riw.com  
+dpq@riw.[[Com]]  
 Bill Friedler 
-bnf@riw.com 
-This article was co-authored by Deborah Pechet Quinan and Deborah Qualia Howe. 
+bnf@riw.[[Com]] 
+This article was co[[-]]authored by Deborah Pechet Quinan and Deborah Qualia Howe. 
 Deborah Pechet Quinan is the Chair of RIW's Trusts & Estates Group. Deborah can be 
-reached at dpq@riw.com or 617-742-4200. 
+reached at dpq@riw.[[Com]] or 617[[-]]742[[-]]4200. 
 HOUSE OVERSIGHT 029434 
 For a full description of our Trusts & Estates Group and a list of all of our practice areas, 
 visit www.riw.com or contact any attorney in our T&E Group. 
 Deborah Pechet Quinan, Chair, Trusts & Estates Group, Shareholder 
-dpq@riw.com  
+dpq@riw.[[Com]]  
 Bill Friedler, Shareholder 
-bnf@riw.com  
+bnf@riw.[[Com]]  
 Catherine Barton Rossetti, Associate 
-cbr@riw.com  
+cbr@riw.[[Com]]  
 Deborah Qualia Howe, Of Counsel 
-dqh@riw.com  
-Jayne Mahoney, Paralegal 
-ilm@riw.com  
-Michele Orchanian, Paralegal 
-mao@riw.com  
+dqh@riw.[[Com]]  
+Jayne Mahoney, [[Paralegal]] 
+ilm@riw.[[Com]]  
+Michele Orchanian, [[Paralegal]] 
+mao@riw.[[Com]]  
 Stay Connected 
-Corporate & Business I Banking, Finance & Lending 
-Bankruptcy Law I Litigation I Construction Law I Securities Law 
-Technology I Employment Law I Emerging Companies 
-Commercial Real Estate I Intellectual Property 
-Hospitality and Retail Services I Trusts & Estates 
-255 State Street, 7th Floor I Boston, MA 02109 
-T: 617.742.4200 I F: 617.742.2355 I 
+Corporate & Business [[I]] Banking, Finance & Lending 
+Bankruptcy Law [[I]] Litigation [[I]] Construction Law [[I]] Securities Law 
+Technology [[I]] Employment Law [[I]] Emerging Companies 
+Commercial Real Estate [[I]] Intellectual Property 
+Hospitality and Retail Services [[I]] Trusts & Estates 
+255 State Street, 7th Floor [[I]] Boston, MA 02109 
+T: 617.742.4200 [[I]] F: 617.742.2355 [[I]] 
 HOUSE OVERSIGHT 029435 
 This summary is presented for informational and educational purposes only, does not constitute legal advice, and 
-cannot be used for the purpose of avoiding tax penalties. Use of this summary does not create an attorney-client 
+cannot be used for the purpose of avoiding tax penalties. Use of this summary does not create an attorney[[-]]client 
 relationship and is not a substitute for legal counsel. 
 ©2018 Ruberto, Israel & Weiner, P.C. 
 Share this email: 
-Manage your preferences I Opt out using TrueRemoveTIVI 
-Got this as a forward? Sign up to receive our future emails. 
+Manage your preferences [[I]] Opt out using TrueRemoveTIVI 
+Got this as a forward? Sign up [[To]] receive our future emails. 
 View this email online. 
 255 State Street 
-Boston, MA I 02109 US 
-This email was sent to 
-To continue receiving our_______________________emails, add us to your address book. 
+Boston, MA [[I]] 02109 US 
+This email was [[Sent]] [[To]] 
+[[To]] continue receiving our_______________________emails, add us [[To]] your address book. 
 HOUSE OVERSIGHT 029436

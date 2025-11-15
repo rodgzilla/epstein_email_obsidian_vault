@@ -5,4 +5,4 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2017-12-01 17:42:37"
 ---
 
-Beginning of the end...will say trump told him to go the russkies
+Beginning of the end...will say trump told him [[To]] go the russkies

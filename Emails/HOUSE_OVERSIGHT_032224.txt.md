@@ -5,4 +5,4 @@ receiver: "[[Subject Re]]"
 date: 
 ---
 
-Will leave @ 9, so will be in ny @ 1 pm.
+Will leave @ 9, so will be in ny @ [[1]] pm.

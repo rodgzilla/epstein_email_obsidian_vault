@@ -5,4 +5,4 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2016-05-21 16:47:49"
 ---
 
-I talked about his role in the birther movement. In car on way to Denver airport now.
+[[I]] talked about his role in the birther movement. In car on way [[To]] Denver airport now.

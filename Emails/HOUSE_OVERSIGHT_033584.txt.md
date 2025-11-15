@@ -5,10 +5,10 @@ receiver: "[[Subject Humor And Trump And Evolutionary Logic]]"
 date: "2016-09-26 20:59:46"
 ---
 
-was pleased that Robert Lynch's work and my own were cited in a Nation 
+was pleased that [[Robert]] Lynch's work and my own were cited in a Nation 
 article on the lack of humor of our Republican standard bearer 
 https://www.thenation.com/article/have-you-ever-seen-donald-trump-laugh/ 
-congratulations Robert 
-John and Jeffrey, i will write you shortly 
-jeevacation@gmail.com________________________________________________________ 
+congratulations [[Robert]] 
+John and [[Jeffrey]], [[I]] will write you shortly 
+[[Jeevacation]]@gmail.com________________________________________________________ 
 HOUSE OVERSIGHT 033584

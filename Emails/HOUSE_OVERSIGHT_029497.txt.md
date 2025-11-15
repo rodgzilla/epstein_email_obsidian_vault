@@ -5,13 +5,13 @@ receiver: "[[jeevacation@gmail.com]]"
 date: "2018-04-01 16:03:51"
 ---
 
-I am curious to see what will be a reaction from Trump's administration and from Europe if Chinese 
+[[I]] am curious [[To]] see what will be a reaction [[From]] Trump's administration and [[From]] Europe if Chinese 
 Foreign Minister Wang Yi do visit Kremlin and possibly Kim's visit right after... Reunion of 
 three socialist countries? 
-On Sun, Apr 1, 2018 at 11:52 AM, wrote: 
+On Sun, Apr [[1]], 2018 at 11:52 AM, [[Wrote]]: 
 Have you seen the full video? so interesting... 
 See the beginning. Looks like a theater, they emote too much. It's funny! 
 And also on 5:45 min when he meets XI Jinping before their diplomatic discussion meeting 
 https://www.youtube.com/watch?v=KQp1Qp0Gw7Y&utm source=newsletter&utm medium=email&utm ca 
-mpaign=newsletter axioschina&stream=top-stories  
+mpaign=newsletter axioschina&stream=top[[-]]stories  
 HOUSE OVERSIGHT 029497

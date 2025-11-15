@@ -6,6 +6,6 @@ date: "2017-02-17 19:00:21"
 ---
 
 Privileged - Redacted 
-DARREN K. INDYKE 
-DARREN K. INDYKE, PLLC 
+[[Darren]] K. [[Indyke]] 
+[[Darren]] K. [[Indyke]], PLLC 
 575 Lexington Avenue, 4th Floor

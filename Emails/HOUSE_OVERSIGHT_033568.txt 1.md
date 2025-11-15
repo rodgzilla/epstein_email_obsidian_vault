@@ -5,8 +5,8 @@ receiver: "[[]]"
 date: "2019-02-09 15:03:36"
 ---
 
-Reply-To: Daryl Cagle <.> 
-• George Krassner 
+Reply-[[To]]: Daryl Cagle <.> 
+• [[George Krassner]] 
 ; Daniel Dawson 
 ; Walli Leff 
 ; Danny 
@@ -15,32 +15,32 @@ Reply-To: Daryl Cagle <.>
 HOUSE OVERSIGHT 033568 
 Howard Schult 
 By Daryl Cagle on Feb 09, 2019 12:13 pm 
-I forgot to post my cartoon from week before last, about Howard Schultz, the prospective independent presidential 
-candidate, billionaire and Starbucks magnate. Schultz threatens to split the vote for a Democratic party candidate, 
-possibly throwing the election to Donald Trump. 
+[[I]] forgot [[To]] post my cartoon [[From]] week before last, about Howard Schultz, the prospective independent presidential 
+candidate, billionaire and Starbucks magnate. Schultz threatens [[To]] split the vote for a Democratic party candidate, 
+possibly throwing the election [[To]] Donald Trump. 
 HOUSE OVERSIGHT 033569 
-The two legged Starbucks mermaid logo is so disturbing that I love to 
-draw it whenever I can. Here's the original Starbucks logo, that customers didn't like. 
+The two legged Starbucks mermaid logo is so disturbing that [[I]] love [[To]] 
+draw it whenever [[I]] can. Here's the original Starbucks logo, that customers didn't like. 
 HOUSE OVERSIGHT 033570 
-The logo was intended to depict the merger of two coffee companies, the original Starbucks and Howard Schultz's 
-company, // Gomale that purchased Starbucks. Starbucks has a nautical theme to go with the character of Seattle. 
+The logo was intended [[To]] depict the merger of two coffee companies, the original Starbucks and Howard Schultz's 
+company, // Gomale that purchased Starbucks. Starbucks has a nautical theme [[To]] go with the character of Seattle. 
 "Starbuck" was the name of the first mate in the novel Moby Dick. 
-This two legged, merger-mermaid is nasty, which makes it great fodder for cartoons. I drew the mermaid last year when 
-there was a racism scandal at Starbucks, leading the company to shut down for a day to do racial sensitivity training. This 
-logo-fish-girl would scare anybody! 
+This two legged, merger[[-]]mermaid is nasty, which makes it great fodder for cartoons. [[I]] drew the mermaid last year when 
+there was a racism scandal at Starbucks, leading the company [[To]] shut down for a day [[To]] do racial sensitivity training. This 
+logo[[-]]fish[[-]]girl would scare anybody! 
 Read in browser »  
-Jeff Bezos and David Pecker 
+Jeff Bezos and [[David]] Pecker 
 By Daryl Cagle on Feb 08, 2019 06:04 pm 
-Here's my new cartoon on the world's richest man, Amazon's Jeff Bezos, and the National Enquirer's (AM I) CEO David 
+Here's my new cartoon on the world's richest man, Amazon's Jeff Bezos, and the National Enquirer's (AM [[I]]) CEO [[David]] 
 Pecker, who was blackmailing Bezos. Pecker's AMI was extorting Bezos, demanding that the Washington Post (which 
 HOUSE OVERSIGHT 033571 
-Bezos owns) hold back publication on their investigation of AMI, and that Bezos stop a private investigator he hired to look 
-into AMI — otherwise they would publish photos of Bezos' penis. Bezos was brave to expose Pecker's extortion. 
-It is interesting that Pecker and AMI seems to have such success with blackmail that his attorneys didn't step back to think 
+Bezos owns) hold back publication on their investigation of AMI, and that Bezos stop a private investigator he hired [[To]] look 
+into AMI — otherwise they would publish photos of Bezos' penis. Bezos was brave [[To]] expose Pecker's extortion. 
+It is interesting that Pecker and AMI seems [[To]] have such success with blackmail that his attorneys didn't step back [[To]] think 
 of what would happen if the person they were blackmailing simply made their emails public. 
-AMI is looking pretty sleazy these days, with likely links to Saudi Arabia, and a reported safe full of Donald Trump secrets, 
-among other tawdry stuff. So, I took advantage of Pecker's dickish name and pulled Pecker's pants down. Some cartoons 
-are fun to draw — even if editors won't publish them much. 
+AMI is looking pretty sleazy these days, with likely links [[To]] Saudi Arabia, and a reported safe full of Donald Trump secrets, 
+among other tawdry stuff. So, [[I]] took advantage of Pecker's dickish name and pulled Pecker's pants down. Some cartoons 
+are fun [[To]] draw — even if editors won't publish them much. 
 Read in browser »  
 Recent Articles: 
 Chinese Hackers! Ouch!  
@@ -52,7 +52,7 @@ HOUSE OVERSIGHT 033572
 Share This Newsletter 
 Share 
 Tweet 
-+1 
++[[1]] 
 Share 
 Forward 
 Follow Me Online 
@@ -60,9 +60,9 @@ Facebook
 Page 
 =X' 
 @dcagle 
-DarylCagle.com 
+DarylCagle.[[Com]] 
 HOUSE OVERSIGHT 033573 
-This email was sent to ______________ 
-why did I get this? unsubscribe from this list update subscription preferences 
+This email was [[Sent]] [[To]] ______________ 
+why did [[I]] get this? unsubscribe [[From]] this list update subscription preferences 
 Cagle Cartoons, Inc. • P.O. Box 22342 • Santa Barbara, CA 93121 • USA 
 HOUSE OVERSIGHT 033574

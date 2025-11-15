@@ -6,6 +6,6 @@ date: "2014-01-20 12:12:29"
 ---
 
 Tough 
-On Monday, January 20, 2014, _______________________________> wrote: 
-Jeff: have a great day on the island (or PB?). Getting to together with Dr Frog tonight. 
-Sent via BlackBerry by AT&T
+On Monday, January 20, 2014, _______________________________> [[Wrote]]: 
+Jeff: have a great day on the island (or PB?). Getting [[To]] together with Dr Frog tonight. 
+[[Sent]] [[Via]] BlackBerry by AT&T

@@ -5,4 +5,4 @@ receiver: "[[Cc Lhsoffice]]"
 date: 
 ---
 
-Yes. Let's briefly discuss. Can u have her write me.
+[[Yes]]. Let's briefly discuss. Can u have her write me.

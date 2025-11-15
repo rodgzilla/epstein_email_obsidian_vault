@@ -6,14 +6,14 @@ date: "2017-09-06 17:19:43"
 ---
 
 http://www.marketwatch.com/story/heres-the-guru-donald-trump-needs-right-now-2017-09-06 
-Deepak Chopra MD 
+[[Deepak Chopra]] [[Md]] 
 2013 Costa Del Mar Road  
 Carlsbad, CA 92009  
 Chopra Foundation 
 Jiyo 
 Chopra Center for Wellbeing 
 Home: Where Everyone is Welcome 
-Deepak Chopra MD 
+[[Deepak Chopra]] [[Md]] 
 2013 Costa Del Mar Road  
 Carlsbad, CA 92009  
 Chopra Foundation 

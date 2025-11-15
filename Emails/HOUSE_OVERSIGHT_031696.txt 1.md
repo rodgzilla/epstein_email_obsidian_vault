@@ -12,7 +12,7 @@ Here, fyi, is today's HuffingtonPost feature and audio:
 http://www.huffingtonpost.com/huff-radio/both-sides-now-w-huffingt 16 b 862240 .html  
 Best, 
 Mark 
-You are currently subscribed to markgreen as: 
-Add mark@markgreen.com to your email address book to ensure delivery 
-Forward to a Friend I Manage Subscription I Subscribe I Unsubscribe 
+You are currently subscribed [[To]] markgreen as: 
+Add mark@markgreen.[[Com]] [[To]] your email address book [[To]] ensure delivery 
+Forward [[To]] a Friend [[I]] Manage Subscription [[I]] Subscribe [[I]] Unsubscribe 
 HOUSE OVERSIGHT 031696

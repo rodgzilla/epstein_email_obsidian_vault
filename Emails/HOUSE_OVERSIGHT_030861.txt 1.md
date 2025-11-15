@@ -8,22 +8,22 @@ date: "2015-03-31 16:06:00"
 Ariane Dwyer 
 OIL 
 All eyes on Iran talks today which were extended by a day into Wednesday. Earlier in the day, a US official suggested 
-that negotiation may continue another day past deadline if 'it's useful to do so'. Another Russian official commented 
+that negotiation may continue another day past deadline if 'it's useful [[To]] do so'. Another Russian official commented 
 that a deal was 'closer and closer'. This optimism about an agreement, at least on some points, weighed heavily on oil 
 today with Brent dropping 2.5%. In my opinion, even if the talks end positively with agreement on key points, the deal 
-has been softened enough compared to what was originally sought by President Obama, and is going to face a tough 
-challenge being approved by a skeptical Congress, which is in fact proposing to impose new sanctions on Iran. 
-Nigeria's elections ended today easing the political tension, with the ex-military ruler Buhari's winning against the 
+has been softened enough compared [[To]] what was originally sought by President Obama, and is going [[To]] face a tough 
+challenge being approved by a skeptical Congress, which is in fact proposing [[To]] impose new sanctions on Iran. 
+Nigeria's elections ended today easing the political tension, with the ex[[-]]military ruler Buhari's winning against the 
 incumbent President. In short term, this eased any immediate violence concerns in the country, but this shift in power 
-can lead to the movement of the Boko Haram violence to southern oil producing region of Nigeria and any 
-developments there need to be carefully watched. In other news, Yemen rebels seized military base at Bab el-Mandeb, 
-overlooking the key shipping route while Saudi-led coalition kept bombing Houthi occupied sites.. 
-Vols were stronger with wings being bought aggressively today as oil can move quickly away from current levels 
-depending on Iran deal outcome.. overall vols gained about 1% across the curve 
+can lead [[To]] the movement of the Boko Haram violence [[To]] southern oil producing region of Nigeria and any 
+developments there need [[To]] be carefully watched. In other news, Yemen rebels seized military base at Bab el[[-]]Mandeb, 
+overlooking the key shipping route while Saudi[[-]]led coalition kept bombing Houthi occupied sites.. 
+Vols were stronger with wings being bought aggressively today as oil can move quickly away [[From]] current levels 
+depending on Iran deal outcome.. overall vols gained about [[1]]% across the curve 
 WTI (/change) 	BRE (/change) 
-K15 	52.50% +1.45% 	51.10% +1.05% 
+K15 	52.50% +[[1]].45% 	51.10% +[[1]].05% 
 M15 	51.20% +2.10% 	47.90% +0.90% 
-Z15 	37.10% +1.00% 	35.15% +0.70% 
+Z15 	37.10% +[[1]].00% 	35.15% +0.70% 
 Z16 	26.20% +0.10% 	26.40% +0.55% 
 Metals 
 3m Ivls 	dod change 	support 	resistance 
@@ -32,29 +32,29 @@ Cu $6041 	-$41 	$6000 	$6300
 Zn $2081 	-$28 	$2000 	$2100 
 Ni $12,395 	-$485 	$12,000 	$13,000 
 Pb $1820 	-$5 	$1800 	$1900 
-The base complex traded down in the morning then picked up on improving customer confidence only to crash off again 
-at close. China has reduced the deposits required from home buyers for the second time in 6 months in an attempt to 
+The base complex traded down in the morning then picked up on improving customer confidence only [[To]] crash off again 
+at close. China has reduced the deposits required [[From]] home buyers for the second time in 6 months in an attempt [[To]] 
 boost sliding house prices, which should have knock on effects in the copper and nickel markets. Nickel continues its 
-slide as CTA funds have sold off heavily on the supply crunch failing to materialize and demand from the stainless steel 
-market evaporating. Nickel ore supplies are also returning from the Philippines as the rainy season ends, adding further 
-supply pressure. Chinese NPI producers are cutting production, selling stocks or attempting to secure loans on the back 
+slide as CTA funds have sold off heavily on the supply crunch failing [[To]] materialize and demand [[From]] the stainless steel 
+market evaporating. Nickel ore supplies are also returning [[From]] the Philippines as the rainy season ends, adding further 
+supply pressure. Chinese NPI producers are cutting production, selling stocks or attempting [[To]] secure loans on the back 
 of stocks in warehouses. Rio Tinto have resolved the their tax dispute with the Mongolian government over the Oyu 
-Tolgoi copper mine but financing still needs to be negotiated over phase ll of the development there. Zambia's Mining 
+Tolgoi copper mine but financing still needs [[To]] be negotiated over phase ll of the development there. Zambia's Mining 
 HOUSE OVERSIGHT 030861 
-and finance ministers have indicated that they may consider temporarily reverting to the old tax regime or making deals 
-on a mine by mine basis as the IMF applaud their efforts to compromise and encouraged them to implement a 
-transparent system that applies to all mines. Vietnam is expected to increase its aluminia output by 20% to 
+and finance ministers have indicated that they may consider temporarily reverting [[To]] the old tax regime or making deals 
+on a mine by mine basis as the IMF applaud their efforts [[To]] compromise and encouraged them [[To]] implement a 
+transparent system that applies [[To]] all mines. Vietnam is expected [[To]] increase its aluminia output by 20% [[To]] 
 650kMT/year as its first plant reaches full capacity this month. 
-Shanghai Aluminum on warrant stocks are flat at 108.1 kMT. LME Aluminum on warrant stocks are flat at 1888 
-kMT Shanghai Copper on warrant stocks are flat at 86.7 kMT. LME Copper stocks are up 0.11% to 252 kMT. LME Nickel 
-stocks are up 0.41% to 332 kMT. 
-Copper Vols are down 0.5%, Ali Vols are down 0.25%, Nickel Vols are up 1%, Lead Vols are unch Zinc Vols are unch 
+Shanghai Aluminum on warrant stocks are flat at 108.[[1]] kMT. LME Aluminum on warrant stocks are flat at 1888 
+kMT Shanghai Copper on warrant stocks are flat at 86.7 kMT. LME Copper stocks are up 0.11% [[To]] 252 kMT. LME Nickel 
+stocks are up 0.41% [[To]] 332 kMT. 
+Copper Vols are down 0.5%, Ali Vols are down 0.25%, Nickel Vols are up [[1]]%, Lead Vols are unch Zinc Vols are unch 
 Upcoming Data 
-30/3-Chicago PMI-Sury 51.7%, Actual 46.3%, Prior 45.8% 
-30/3-US Consumer Confidence Index -Sury 96.4, Actual 101.3, Prior 96.4 
+30/3[[-]]Chicago PMI[[-]]Sury 51.7%, Actual 46.3%, Prior 45.8% 
+30/3[[-]]US Consumer Confidence Index -Sury 96.4, Actual 101.3, Prior 96.4 
 Regards, 
 Prateek 
 Please access the link for disclaimer: 
-http://globalmarkets.db.com/new/content/3045.html 
-Deutsche Bank External Business Conduct Standards can be found at 
+http://globalmarkets.db.[[Com]]/new/content/3045.html 
+Deutsche Bank [[External]] Business Conduct Standards can be found at 
 www.DB.com/doddfrank

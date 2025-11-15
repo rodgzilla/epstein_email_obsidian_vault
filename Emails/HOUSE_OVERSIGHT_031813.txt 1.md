@@ -6,7 +6,7 @@ date: "2018-07-13 13:55:00"
 ---
 
 lye had enough! !!! Which puts ??? 
-On Fri, Jul 13, 2018 at 1:40 PM Paul Barrett < 
+On Fri, Jul 13, 2018 at [[1]]:40 PM [[Paul Barrett]] < 
 MillaM 
 > wrote: 
 Any thoughts on the AVGO Aug puts? Stock trading at 204.50. 

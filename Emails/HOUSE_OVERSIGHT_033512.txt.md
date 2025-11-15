@@ -5,5 +5,5 @@ receiver: "[[Martin Weinberg; jeeyacation@gmail.com; Jackie Perczek]]"
 date: "2019-05-29 16:57:42"
 ---
 
-Attachments: image001.jpg; image002.jpg; image003.jpg 
+[[Attachments]]: image001.jpg; image002.jpg; image003.jpg 
 fyi

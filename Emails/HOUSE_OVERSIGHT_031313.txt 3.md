@@ -5,14 +5,14 @@ receiver: "[[Michael; Charles]]"
 date: "2016-08-15 17:35:00"
 ---
 
-JEFF EPSTEIN CHILD RAPES RELEASE DATE OCT 10 2016 STEVEN HOFFENBERG IS ON THE BOOK WRITING TEAM!!!! 
-i 
-i 
-i 
-i 
-i 
-i 
-i 
+JEFF [[Epstein]] CHILD RAPES RELEASE [[Date]] OCT 10 2016 [[Steven Hoffenberg]] IS ON THE BOOK WRITING TEAM!!!! 
+[[I]] 
+[[I]] 
+[[I]] 
+[[I]] 
+[[I]] 
+[[I]] 
+[[I]] 
 , 
 , 
 , 
@@ -29,9 +29,9 @@ i
 , , 
 Thanks, 
 Regards, 
-Darren 
-DARREN K. INDYKE 
-DARREN K. INDYKE, PLLC 
+[[Darren]] 
+[[Darren]] K. [[Indyke]] 
+[[Darren]] K. [[Indyke]], PLLC 
 575 Lexington Avenue, 4th Floor 
 New York, New York 10022 
 HOUSE OVERSIGHT 031315

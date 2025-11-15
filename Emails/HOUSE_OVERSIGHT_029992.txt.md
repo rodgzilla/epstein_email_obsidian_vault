@@ -6,4 +6,4 @@ date: "2016-07-01 11:15:57"
 ---
 
 Ha! That fuckin lou barbati, its about time someone nailed him over those nuts 
-Sent via BlackBerry by AT&T
+[[Sent]] [[Via]] BlackBerry by AT&T

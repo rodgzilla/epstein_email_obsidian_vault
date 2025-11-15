@@ -6,4 +6,4 @@ date: "2011-08-03 00:55:00"
 ---
 
 Its such a circus with this politics thing...its ridiculous 
-Sent via BlackBerry from T- Mobile
+[[Sent]] [[Via]] BlackBerry [[From]] T- Mobile

@@ -5,14 +5,14 @@ receiver: "[[Steven J. Hoffenberg]]"
 date: "2016-01-27 12:01:01"
 ---
 
-Steven J. Hoffenberg 
+[[Steven J. Hoffenberg]] 
 New York Post Publishing INC. 
 CEO 
-TOWERSINVESTORS.COM 
+TOWERSINVESTORS.[[Com]] 
 CEO 
 HOUSE OVERSIGHT 031195 
 SEE 
 WWW.POST PUBLISHING.BUZZ THE JESUS CHRIST ON LINE GODs WORD NEWSPAPER 
 MR HOFFENBERG ONLINE NEWSPAPER 
-PUBLICSPEAKINGWALLSTREET.COM  
-Begin forwarded message:
+PUBLICSPEAKINGWALLSTREET.[[Com]]  
+Begin [[Forwarded Message]]:

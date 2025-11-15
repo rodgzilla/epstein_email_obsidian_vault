@@ -6,7 +6,7 @@ date: "2018-03-24 21:55:46"
 ---
 
 Flag: Follow up 
-Thanks! I think we've heard enough proofs on this subject today:) 
+Thanks! [[I]] think we've heard enough proofs on this [[Subject]] today:) 
 Miroslav Laj6ak 
 Minister zahrani6nSrch veci a eur6pskych zaleZ'itosti Slovenskej republiky 
 Minister of Foreign & European Affairs of the Slovak Republic 

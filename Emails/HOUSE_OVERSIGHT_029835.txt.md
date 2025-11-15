@@ -5,5 +5,5 @@ receiver: "[[jeeyacation@gmail.com; Alan M. Dershowitz]]"
 date: "2016-04-28 16:47:41"
 ---
 
-; Jack Goldberger 
+; [[Jack Goldberger]] 
 Privileged - Redacted

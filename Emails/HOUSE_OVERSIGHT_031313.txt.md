@@ -6,9 +6,9 @@ date: "2016-08-18 14:47:14"
 ---
 
 Privileged - Redacted 
-On Thu, Aug 18, 2016 at 8:45 AM, Darren Indyke wrote: 
+On Thu, Aug 18, 2016 at 8:45 AM, [[Darren]] [[Indyke]] [[Wrote]]: 
 Privileged - Redacted 
-DARREN K. INDYKE 
-DARREN K. INDYKE, PLLC 
+[[Darren]] K. [[Indyke]] 
+[[Darren]] K. [[Indyke]], PLLC 
 575 Lexington Avenue, 4th Floor 
 New York, New York 10022

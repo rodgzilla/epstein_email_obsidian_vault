@@ -6,7 +6,7 @@ date: "2011-07-27 17:17:00"
 ---
 
 >; 
-Barak to fly to US, meet Biden, Clinton, Panetta 
+Barak [[To]] fly [[To]] US, meet Biden, Clinton, Panetta 
 and Ban„„ it seems they forgot one person on the 
 list 
-By JPOST.COM STAFF
+By JPOST.[[Com]] STAFF

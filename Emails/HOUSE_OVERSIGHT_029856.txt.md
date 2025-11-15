@@ -6,4 +6,4 @@ date: "2017-05-22 20:41:33"
 ---
 
 fun 
-On Mon, May 22, 2017 at 4:39 PM, Weingarten, Reid
+On Mon, May 22, 2017 at 4:39 PM, [[Weingarten]], [[Reid]]

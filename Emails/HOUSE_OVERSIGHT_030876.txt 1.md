@@ -5,54 +5,54 @@ receiver: "[[Fareed Zakaria Gps]]"
 date: "2018-06-02 02:26:50"
 ---
 
-Please scroll down or click here to read my latest Washington Post column. 
-Steve Bannon's clever idea to save the GOP from brutal midterms 
-By Fareed Zakaria, Friday, June 1, 2018 
-ROME -- The Republican Party faces dim prospects in the midterm elections. But it doesn't have to be that way, says 
+Please scroll down or click here [[To]] read my latest Washington Post column. 
+[[Steve Bannon]]'s clever idea [[To]] save the GOP [[From]] brutal midterms 
+By Fareed Zakaria, Friday, June [[1]], 2018 
+ROME -- The Republican Party faces dim prospects in the midterm elections. But it doesn't have [[To]] be that way, says 
 Stephen K. Bannon, the chief ideologist of the populist wave that brought Donald Trump into the White House. "If the 
 Republicans continue on the path they are on," Bannon told me Thursday, "they will lose 40 seats in the House and 
 President Trump will be impeached." He presented an alternative that strikes me as clever, and it's a strategy that 
-Trump himself seems to instinctively get. 
-Bannon was in Rome to learn from and provide support to the unusual coalition of populists and nationalists who 
-together won half the vote in Italy's recent elections and are now set to govern. Bannon sees that sort of coalition — 
+Trump himself seems [[To]] instinctively get. 
+Bannon was in Rome [[To]] learn [[From]] and provide support [[To]] the unusual coalition of populists and nationalists who 
+together won half the vote in Italy's recent elections and are now set [[To]] govern. Bannon sees that sort of coalition — 
 mixing left and right, old and young — as his goal for the United States. "Europe is about a year ahead of the United 
-States.... You see populist-nationalist movements with reform [here].... You could begin to see the elements of 
+States.... You see populist[[-]]nationalist movements with reform [here].... You could begin [[To]] see the elements of 
 Bernie Sanders coupled with the Trump movement that really becomes a dominant political force in American politics." 
-(This column draws on an on-air interview he did with me for CNN, as well as a subsequent conversation.) 
-The Republican Party's strategy, for now, appears to be to make the midterm elections a series of local contests focusing 
-on the tax cut and the healthy economy. Bannon views this as fundamentally misguided. "You have to nationalize the 
-election," he said. Bannon understands that voters are moved from the gut more than through a wonky analysis of 
-taxes. "This is going to be an emotional [election] — you're either with [House Minority leader] Nancy Pelosi or you're 
+(This column draws on an on[[-]]air interview he did with me for CNN, as well as a subsequent conversation.) 
+The Republican Party's strategy, for now, appears [[To]] be [[To]] make the midterm elections a series of local contests focusing 
+on the tax cut and the healthy economy. Bannon views this as fundamentally misguided. "You have [[To]] nationalize the 
+election," he said. Bannon understands that voters are moved [[From]] the gut more than through a wonky analysis of 
+taxes. "This is going [[To]] be an emotional [election] — you're either with [House Minority leader] Nancy Pelosi or you're 
 with Donald Trump.... Trump's second presidential race will be on Nov. 6 of this year." 
 Bannon is most focused on the issue of immigration because it hits both the heart and the head. "Immigration is about 
-not just sovereignty, it's about jobs." He believes that the Trump coalition can attract up to a third of Sanders supporters 
-who see trade and immigration as having created unfair competition for jobs, particularly for working-class blacks and 
-Hispanics. He advocates appealing directly to those voters, saying, "You're not going to be able to take the Hispanic and 
-black community from the STEM system in grammar school to our best engineering schools ... to the great jobs in 
-Silicon Valley, unless you start to limit these H-1B visas and this unfair competition ... from East Asia and South Asia." 
+not just sovereignty, it's about jobs." He believes that the Trump coalition can attract up [[To]] a third of Sanders supporters 
+who see trade and immigration as having created unfair competition for jobs, particularly for working[[-]]class blacks and 
+Hispanics. He advocates appealing directly [[To]] those voters, saying, "You're not going [[To]] be able [[To]] take the Hispanic and 
+black community [[From]] the STEM system in grammar school [[To]] our best engineering schools ... [[To]] the great jobs in 
+Silicon Valley, unless you start [[To]] limit these H[[-]]1B visas and this unfair competition ... [[From]] East Asia and South Asia." 
 Now this strikes me as entirely wrong. The reason that not enough Hispanic and black students end up in Silicon Valley 
-has much more to do with a broken education system, particularly for poorer kids, than the modest number of skilled 
+has much more [[To]] do with a broken education system, particularly for poorer kids, than the modest number of skilled 
 Asian immigrants who get work visas. The most likely result of limiting these visas is that talented immigrants will simply 
 HOUSE OVERSIGHT 030876 
 go elsewhere — Canada, Britain, Australia — and start successful companies there. And, in fact, there is lots of evidence 
 this is already happening. 
 But Bannon is right that this is a brilliant electoral strategy. The idea of greater immigration controls has an undeniable 
-mainstream appeal. The Democratic Party is too far to the left on many of these issues, embracing concepts such as 
+mainstream appeal. The Democratic Party is too far [[To]] the left on many of these issues, embracing concepts such as 
 sanctuary cities, which only reinforces its image as a party that is more concerned with race, identity and 
 multiculturalism than the rule of law. 
-Where Bannon is analytic and historical, Trump is instinctive. But the president appears to see the situation similarly. I 
-wrote last month that Trump would try to fight the midterm elections on immigration and added, "Do not be surprised if 
+Where Bannon is analytic and historical, Trump is instinctive. But the president appears [[To]] see the situation similarly. [[I]] 
+[[Wrote]] last month that Trump would try [[To]] fight the midterm elections on immigration and added, "Do not be surprised if 
 Trump also picks a few fights with black athletes." In recent weeks, the president has labeled immigrant gang members 
 "animals" and suggested that football players who silently protest police violence against blacks should leave the 
 country. 
 Bannon thinks Trump is just getting started in nationalizing the election around immigration. He predicted the next 
 major battle would be over the proposed wall along the U.S.-Mexico border. "The wall is not just totemic. The wall is 
-absolutely central to his program.... As we come up on Sept. 30, if [Congress's] appropriations bill does not include 
-spending to fully build his wall ... I believe he will shut down the government." 
+absolutely central [[To]] his program.... As we come up on Sept. 30, if [Congress's] appropriations bill does not include 
+spending [[To]] fully build his wall ... [[I]] believe he will shut down the government." 
 Sadly, but not surprisingly, Bannon doesn't think the fighting and the rancor in the United States are going away any 
 time soon. The "battle between nationalists and globalists is at the fundamental roots of what America is, what America 
-will be," he said. "This is very healthy, and ... I think this is going to go on for a long time.... We've got a lot more 
-fighting and a lot more scar tissue to go over." 
-You can watch my CNN special "The Steve Bannon Interview" on Friday at 9 pm ET and Sunday at 10 am ET. 
-NOTE: This e-mail message is subject to the Dubai World Group disclaimer see http://www.dubaiworld.ae/email disclaimer 
+will be," he said. "This is very healthy, and ... [[I]] think this is going [[To]] go on for a long time.... We've got a lot more 
+fighting and a lot more scar tissue [[To]] go over." 
+You can watch my CNN special "The [[Steve Bannon]] Interview" on Friday at 9 pm ET and Sunday at 10 am ET. 
+NOTE: This e[[-]]mail message is [[Subject]] [[To]] the Dubai World Group disclaimer see http://www.dubaiworld.ae/email disclaimer 
 HOUSE OVERSIGHT 030877

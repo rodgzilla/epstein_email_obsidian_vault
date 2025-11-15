@@ -5,4 +5,4 @@ receiver: "[[jeevacation@gmail.com]]"
 date: "2019-06-01 22:53:32"
 ---
 
-They r all jumping ship - its totally crazy - it's time to worry
+They r all jumping ship - its totally crazy - it's time [[To]] worry

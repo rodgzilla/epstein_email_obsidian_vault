@@ -5,4 +5,4 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2017-11-02 17:36:25"
 ---
 
-Trump is going to fire mueller and republicans on hill won't do a thing
+Trump is going [[To]] fire mueller and republicans on [[Hill]] won't do a thing

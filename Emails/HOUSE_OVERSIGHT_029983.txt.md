@@ -6,5 +6,5 @@ date: "2015-07-06 17:04:31"
 ---
 
 slow progress. 
-planning to see you in August. 
+planning [[To]] see you in August. 
 Hope you're well.

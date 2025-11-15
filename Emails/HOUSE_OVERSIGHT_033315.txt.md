@@ -5,5 +5,5 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2018-07-17 00:29:07"
 ---
 
-Your boy should distance himself from Trump. Quick. 
+Your boy should distance himself [[From]] Trump. Quick. 
 HOUSE OVERSIGHT 033315

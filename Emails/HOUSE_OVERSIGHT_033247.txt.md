@@ -11,7 +11,7 @@ Destinataire:
 "Broclawski, Benjamin" < 
 Objet: Disney CEO Bob Iger Calls DACA Decision 'Cruel' and 'Misguided' 
 >, 
-. volt Disney Co. CEO Bob Iger weighed in on President Trump's decision to rescind an Obama-era progr... 
+. volt Disney Co. CEO Bob Iger weighed in on President Trump's decision [[To]] rescind an Obama[[-]]era progr... 
 BREAKING NEWS 
 TUE, SEPTEMBER 5, 2017 
 SI. 
@@ -19,7 +19,7 @@ Disney CEO Bob Iger Calls DACA Decision
 'Cruel' and Misguided' 
 HOUSE OVERSIGHT 033247 
 Walt Disney Co. CEO Bob !ger weighed in on President Trump's 
-decision to rescind an Obama-era program to allow young 
+decision [[To]] rescind an Obama[[-]]era program [[To]] allow young 
 undocumented ... 
 Full Story Es:41 
 Follow us on Facebook 

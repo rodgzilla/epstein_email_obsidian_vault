@@ -7,7 +7,7 @@ date:
 
 sorry.. all SHOW.. he is a fucking showman.. a carnival huckster.. this, and the military budget and health care 
 are all show... no substance.. just the 'biggest ever'., for a guy with small hands.. 
-On Mar 22, 2017, at 4:46 AM, Lawrence Krauss < > wrote: 
+On Mar 22, 2017, at 4:46 AM, [[Lawrence]] Krauss < > wrote: 
 All shoe. This is not supporting science. It is all about the size of the rocket for him. All this will do is give him 
 glory and not contribute to science. 
 Lawrence M. Krauss 

@@ -5,7 +5,7 @@ receiver: "[[Dunlavey; Dean oc]]"
 date: "2016-08-11 19:41:00"
 ---
 
-The LA Times appears to be the first media to report on the verdict. Latham references are highlighted: 
+The LA Times appears [[To]] be the first media [[To]] report on the verdict. Latham references are highlighted: 
 HOUSE OVERSIGHT 030101 
 BUSINESS 
 Federal jury decides Middle East bank did not defraud Orange County entrepreneur<http://fw.to/aXv1QHI> 
@@ -80,7 +80,7 @@ Bajwa said the trial has taken a toll on him and he doesn't know his next steps.
 Phil Hirschkorn contributed to this report. 
 andrew.khouriglatimes.com<mailto:andrew.khouriglatimes.com> 
 Copyright 0 2016, Los Angeles Times<http://www.latimes.com/> 
-Frank Pizzurro 
+Frank [[Pizzurro]] 
 Public Relations Senior Manager 
 LATHAM & WATKINS LLP 
-355 South Grand Avenue I Los Aneeles, CA 90071-1560
+355 South Grand Avenue [[I]] Los Aneeles, CA 90071[[-]]1560

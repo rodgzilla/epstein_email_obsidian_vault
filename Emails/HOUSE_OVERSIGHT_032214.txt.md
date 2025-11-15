@@ -6,11 +6,11 @@ date:
 ---
 
 Agreed 
-jeffrey E. [jeeyacation@gmail.com] 
+[[Jeffrey]] E. [[[jeeyacation@gmail.com]]] 
 3/24/2018 10:07:32 PM 
 Re: 
 On Sat, Mar 24, 2018 at 5:55 PM 
-Thanks! I think we've heard enough proofs on this subject today:) 
+Thanks! [[I]] think we've heard enough proofs on this [[Subject]] today:) 
 Miroslav Laj6ak 
 Minister zahrani6nSrch veci a eur6pskych zaleZ'itosti Slovenskej republiky 
 Minister of Foreign & European Affairs of the Slovak Republic 

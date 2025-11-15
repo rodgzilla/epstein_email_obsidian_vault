@@ -5,6 +5,6 @@ receiver: "[[Weingarten; Reid]]"
 date: "2018-01-04 15:46:44"
 ---
 
-i tried a coupe of times 
-On Thu, Jan 4, 2018 at 10:37 AM, Weingarten, Reid < > wrote: 
+[[I]] tried a coupe of times 
+On Thu, Jan 4, 2018 at 10:37 AM, [[Weingarten]], [[Reid]] < > [[Wrote]]: 
 Call me..

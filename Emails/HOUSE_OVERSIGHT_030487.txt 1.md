@@ -46,9 +46,9 @@ Sophie BengerlDigital Infrastructure Desk 1Department for Business, Innovation a
 1www.bis.gov.uk <http://www.bis.gov.uld  > 
 HOUSE OVERSIGHT 030488 
 The Department for Business, Innovation & Skills (BIS) is building a dynamic and competitive UK economy by creating the conditions 
-for business success; promoting innovation, enterprise and science; and giving everyone the skills and opportunities to succeed. To 
-achieve this we will foster world-class universities and promote an open global economy. BIS - investing in our future. 
+for business success; promoting innovation, enterprise and science; and giving everyone the skills and opportunities [[To]] succeed. [[To]] 
+achieve this we will foster world[[-]]class universities and promote an open global economy. BIS - investing in our future. 
 The original of this email was scanned for viruses by the Government Secure Intranet virus scanning service 
 supplied by Cable&Wireless in partnership with MessageLabs. (CCTM Certificate Number 2009/09/0052.) On 
 leaving the GSi this email was certified virus free. 
-Communications via the GSi may be automatically logged, monitored and/or recorded for legal purposes.
+Communications [[Via]] the GSi may be automatically logged, monitored and/or recorded for legal purposes.

@@ -5,6 +5,6 @@ receiver: "[[jeevacation@gmail.com]]"
 date: 
 ---
 
-Sent from my iPhone 
+[[Sent]] [[From]] my iPhone 
 Privileged - Redacted 
-Begin forwarded message:
+Begin [[Forwarded Message]]:

@@ -5,18 +5,18 @@ receiver: "[[Subject]]"
 date: 
 ---
 
-Attachments: 
-Larry Visoski 
-1/8/2018 2:02:30 PM 
-Je vacation [jeevacation@gmail.com] 
+[[Attachments]]: 
+[[Larry]] Visoski 
+[[1]]/8/2018 2:02:30 PM 
+Je vacation [[[jeevacation@gmail.com]]] 
 POTUS 
 image002.png 
-Jeffrey 
+[[Jeffrey]] 
 FYI 
 Trump estimate arrival Jan 12 evening 
 POTUS arrival — Friday, January 12th, time TBD (likely PM) 
 POTUS departure — Monday, January 15th, time TBD (likely PM) 
-Advance teams arrive tomorrow — hope to learn more specific times for these movements and will update you. 
-Rumors of a visit the following week are surfacing — January 10-21 st.  
+Advance teams arrive tomorrow — hope [[To]] learn more specific times for these movements and will update you. 
+Rumors of a visit the following week are surfacing — January 10[[-]]21 st.  
 Seth Mager 
 Customer Relations Manager

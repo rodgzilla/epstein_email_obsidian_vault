@@ -5,4 +5,4 @@ receiver: "[[Martin Weinberg]]"
 date: "2010-02-26 09:59:00"
 ---
 
-Forwarded message
+[[Forwarded Message]]

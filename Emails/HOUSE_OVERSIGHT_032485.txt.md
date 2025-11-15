@@ -5,4 +5,4 @@ receiver: "[[jeevacation@gmail.com]]"
 date: "2017-02-16 01:36:00"
 ---
 
-Channeling you! Maybe even the big guy gives it a read. What? This? From the failing NYT?
+Channeling you! Maybe even the big guy gives it a read. What? This? [[From]] the failing NYT?

@@ -5,25 +5,25 @@ receiver: "[[Subject Chinas Dangerous Test]]"
 date: "2018-11-21 16:46:50"
 ---
 
-Beijing plans to give its 22 million residents behavioral report cards as China moves toward higher-
-intensity monitoring of its entire population. This strategy, similar to those of other Chinese cities, 
+Beijing plans [[To]] give its 22 million residents behavioral report cards as China moves toward higher-
+intensity monitoring of its entire population. This strategy, similar [[To]] those of other Chinese cities, 
 has been made easier by mobile technology and existing state restrictions on electronic 
 anonymity. Getting an "F" on this test doesn't mean staying after school, though. The 
-consequences can last a lifetime. —David E. Rove/la 
+consequences can last a lifetime. —[[David]] E. Rove/la 
 Here are today's top stories 
 If there's one thing Americans do well, it's spend. The expectation this holiday shopping season 
-is that they will burn through $1 trillion. But save a kind thought for one former king of Christmas: 
+is that they will burn through $[[1]] trillion. But save a kind thought for one former [[King]] of Christmas: 
 This is usually the most wonderful time of the year for gadget maker Apple. Not anymore. 
 HOUSE OVERSIGHT 033329 
 Apple's helpers aren't feeling joyous, either. Foxconn Technology Group, the biggest assembler 
-of iPhones, aims to cut $2.9 billion from expenses in 2019 as it faces " a very difficult and 
+of iPhones, aims [[To]] cut $2.9 billion [[From]] expenses in 2019 as it faces " a very difficult and 
 competitive year." 
 In an extraordinary statement for a U.S. Supreme Court chief justice, John Roberts, an 
-appointee of Republican President George W. Bush, criticized the Republican currently in the 
+appointee of Republican President George [[W]]. Bush, criticized the Republican currently in the 
 White House for implying a federal judge appointed by Democratic President Barack Obama was 
-partisan. U.S. District Judge Jon Tigar this week blocked Donald Trump's latest effort to restrict 
+partisan. U.S. District Judge Jon Tigar this week blocked Donald Trump's latest effort [[To]] restrict 
 immigration. 
-U.S. fossil fuel producers say they expect to fix distribution issues tied to the Permian Basin next 
+U.S. fossil fuel producers say they expect [[To]] fix distribution issues tied [[To]] the Permian Basin next 
 year, adding three pipelines and as many as 2 million barrels of oil a day. For OPEC, it's a very 
 bad dream come true. 
 Depressed about that money you just lost in your 401(k)? Don't feel too terrible, as it could have 
@@ -33,38 +33,38 @@ During his time Running Nissan, Carlos Ghosn earned a lot more than his Japanese
 not nearly as much as other global auto leaders. 
 What is Joe Weisenthal thinking about? The Fed. The Bloomberg news director has bad tidings 
 for those of you who think the market's recent calamitous behavior might slow planned rate hikes. 
-What you'll need to know tomorrow 
+What you'll need [[To]] know tomorrow 
 • China warns economists on predictions that don't toe the Party's line. 
 • Dolce & Gabbana faces China boycott for "racist" videos. 
-• The EU extended a stiff-arm to the U.K. over Sunday Brexit talks. 
+• The EU extended a stiff[[-]]arm [[To]] the U.K. over Sunday Brexit talks. 
 • General Electric could be a $41 billion problem for these banks. 
-• Scared investors will force Trump to deal on trade, TIAA Bank says. 
-• A Boeing 737 narrowly avoided disaster on takeoff from Belfast. 
-• George Papadopoulos? Robert Mueller says lock 'em up. 
+• Scared investors will force Trump [[To]] deal on trade, TIAA Bank says. 
+• A Boeing 737 narrowly avoided disaster on takeoff [[From]] Belfast. 
+• George Papadopoulos? [[Robert]] Mueller says lock 'em up. 
 HOUSE OVERSIGHT 033330 
 Sponsored Content by The Points Guy 
-With perks like 5x points on airfare and hotels, up to $200 in annual Uber credits, access to a 
-network of airport lounges and more this premium card is worth the annual fee. Get access to 
+With perks like 5x points on airfare and hotels, up [[To]] $200 in annual Uber credits, access [[To]] a 
+network of airport lounges and more this premium card is worth the annual fee. Get access [[To]] 
 exclusive lounges with this card.  
-What you'll want to read tonight 
-How Do You Get a Millennial to Watch Golf? 
-When AT&T acquired the rights to a pay-per-view duel between legends Tiger Woods and Phil 
-Mickelson, it suddenly faced a challenge: How do you create a golf event that appeals to both 
-retirement age-traditionalists and a more lucrative, younger demographic? Less whispers, more 
+What you'll want [[To]] read tonight 
+How Do You Get a Millennial [[To]] Watch Golf? 
+When AT&T acquired the rights [[To]] a pay[[-]]per[[-]]view duel between legends Tiger Woods and Phil 
+Mickelson, it suddenly faced a challenge: How do you create a golf event that appeals [[To]] both 
+retirement age[[-]]traditionalists and a more lucrative, younger demographic? Less whispers, more 
 wagers. 
 ;1474? 
 Have you started strategizing for 2019? We have. Don't miss the annual Bloomberg 
 Businessweek special report, The Year Ahead, on the major trends, disruptions, breakthrough 
-products, innovations and movements to watch in the coming year. Get Bloomberg All Access in 
-time to receive this issue in print and much more. 
-There's a new way to get the latest business news and analysis from Bloomberg. We're now on 
-WhatsApp. Sign up here to get on-the-ground updates from reporters, breaking markets news, and 
+products, innovations and movements [[To]] watch in the coming year. Get Bloomberg All Access in 
+time [[To]] receive this issue in print and much more. 
+There's a new way [[To]] get the latest business news and analysis [[From]] Bloomberg. We're now on 
+WhatsApp. Sign up here [[To]] get on[[-]]the[[-]]ground updates [[From]] reporters, breaking markets news, and 
 more. 
 Download the Bloomberg app: It's available for iOS and Android. 
 4171, 
 FOLLOW 
-SEND TO A FRIEND 
-You received this message because you are subscribed to Bloomberg's Evening Briefing newsletter. 
-Unsubscribe I Bloomberg.com I Contact Us 
-Bloomberg L.P. 731 Lexington, New York, NY, 10022 
+SEND [[To]] A FRIEND 
+You received this message because you are subscribed [[To]] Bloomberg's Evening Briefing newsletter. 
+Unsubscribe [[I]] Bloomberg.[[Com]] [[I]] Contact Us 
+Bloomberg [[L]].P. 731 Lexington, New York, NY, 10022 
 HOUSE OVERSIGHT 033331

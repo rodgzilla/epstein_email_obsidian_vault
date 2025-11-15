@@ -26,19 +26,19 @@ The evidence is from documents confiscated by police during a criminal investiga
 Epstein and seen yesterday by the Mail. 
 HOUSE OVERSIGHT 030519 
 Message from a child asking what time to leave school 
----n-----e-__ 
+---n-----e[[-]]__ 
 Miss Maxwell is asked when a girl should give a massage 
-One message left for Epstein reads: 'She is wondering if 2.30 ok cuz she needs to stay in 
+One message left for [[Epstein]] reads: 'She is wondering if 2.30 ok cuz she needs [[To]] stay in 
 school.' 
-It was left in February 2005 — the same year that the mother of a 14-year-old girl alerted 
-police to Epstein's abuse. 
-Another note shows that 'Colleen' phoned to tell Epstein: 'Going into class — will be out in 
+It was left in February 2005 — the same year that the mother of a 14[[-]]year[[-]]old girl alerted 
+police [[To]] [[Epstein]]'s abuse. 
+Another note shows that 'Colleen' phoned [[To]] tell [[Epstein]]: 'Going into class — will be out in 
 45 mm.' 
-Last night the Daily Mail tried to contact the people whose names and telephone numbers 
+Last night the Daily Mail tried [[To]] contact the people whose names and telephone numbers 
 are included in the logs. 
 One girl named Jenny, who had left her number, hung up immediately when asked about 
-Epstein. 
-A man listed only as Darren said: 'I have no comment to make on that.' 
+[[Epstein]]. 
+A man listed only as [[Darren]] said: '[[I]] have no comment [[To]] make on that.' 
 Read more: http ://www. dailymail. co .uk/news/article-13 640 1 0/Did-Prince-Andrew-fix-Fergies-bailout-
-Billionaire-paid-debts-days-princes-visit.html#ixzzlFyMDA8If 
+Billionaire[[-]]paid[[-]]debts[[-]]days[[-]]princes[[-]]visit.html#ixzzlFyMDA8If 
 --

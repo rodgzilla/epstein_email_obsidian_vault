@@ -5,7 +5,7 @@ receiver: "[[Weingarten; Reid]]"
 date: "2017-04-29 14:46:00"
 ---
 
-for how long, you can hop to my island with your friend if you like, just give me 24 hrs notice otherwsie i 
+for how long, you can hop [[To]] my island with your friend if you like, just give me 24 hrs notice otherwsie [[I]] 
 ill be htre around the 19th 
-On Sat, Apr 29, 2017 at 2:45 PM, Weingarten, Reid <__________________________> wrote: 
+On Sat, Apr 29, 2017 at 2:45 PM, [[Weingarten]], [[Reid]] <__________________________> [[Wrote]]: 
 San juan...pick the jury monday

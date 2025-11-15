@@ -11,11 +11,11 @@ telephone- log.html <http ://www. dailymail. c o .uk/news/artic le- 1364171/Fema
 The-damning-te lephone- lo g.html>  <http ://www. dailymail. c o .uk/news/artic le- 1364171/F emales-
 Je ffrey-Ep stein- The-damning-telephone-log.html <http ://www. dailymail. c o .uk/news/artic le-
 1364171/F emales- Jeffrey-Epstein- The-damning- telephone- lo g.html> > 
-Ross Gow 
+[[Ross Gow]] 
 Managing Partner 
 ACUITY Reputation Limited 
 23 Berkeley Square 
 London W1J 6HE 
 Mobile 
 Tel 
-acuityreputation.com <http://acuityreputation.com > <http://acuityreputation.com >
+acuityreputation.[[Com]] <http://acuityreputation.com > <http://acuityreputation.com >

@@ -6,5 +6,5 @@ date: "2016-08-18 14:09:42"
 ---
 
 https : //www. theguardi an. com/news/2016/aug/16/sec ret -hi story-trumpi sm-donal d-trump?CMP=share_btn_tw 
-Co-authored with i Phone auto-correct 
+Co[[-]]authored with [[I]] Phone auto[[-]]correct 
 HOUSE OVERSIGHT 033309

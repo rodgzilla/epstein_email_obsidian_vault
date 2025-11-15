@@ -5,4 +5,4 @@ receiver: "[[Martin Weinberg Scott J. Link Darren Indyke]]"
 date: "2019-03-05 23:12:41"
 ---
 
-Forwarded message
+[[Forwarded Message]]

@@ -6,10 +6,10 @@ date: "2016-11-18 16:38:21"
 ---
 
 This guy apparently is constantly texting Trump/Trump. Have you heard of him? 
-http://hginvestors.com/?page id= 1 0  
-Landon Thomas, Jr. 
+http://hginvestors.[[Com]]/?page id= [[1]] 0  
+[[Landon]] Thomas, Jr. 
 Financial Reporter 
 New York Times 
-http://topics.nytimes.com/top/reference/timestopics/people/t/landon jr thomas/index.h  
+http://topics.nytimes.[[Com]]/top/reference/timestopics/people/t/[[Landon]] jr thomas/index.h  
 tml 
 HOUSE OVERSIGHT 031291

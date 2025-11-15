@@ -5,4 +5,4 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2017-09-09 17:26:47"
 ---
 
-see you inshalla Ii
+see you inshalla [[Ii]]

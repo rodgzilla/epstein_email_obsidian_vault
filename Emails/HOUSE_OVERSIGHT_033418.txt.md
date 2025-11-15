@@ -6,5 +6,5 @@ date: "2018-11-20 18:36:39"
 ---
 
 Think no response for a while probably appropriate. 
-Just had lunch w 
+Just had lunch [[W]] 
 Is trump getting crazier as many of my pals think or is it steady crazy.

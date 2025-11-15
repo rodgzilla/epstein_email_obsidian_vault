@@ -5,6 +5,6 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2017-09-08 10:24:06"
 ---
 
-i dont know yet.. larson should reply to me soon.. i will let you know as soon as he reply. are you in new york 
+[[I]] dont know yet.. larson should reply [[To]] me soon.. [[I]] will let you know as soon as he reply. are you in new york 
 after paris? 
-i hope he reply soon as i want to catch my old man while he is there
+[[I]] hope he reply soon as [[I]] want [[To]] catch my old man while he is there

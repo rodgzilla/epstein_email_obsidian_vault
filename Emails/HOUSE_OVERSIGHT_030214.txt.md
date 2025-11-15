@@ -5,7 +5,7 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2017-02-07 19:12:15"
 ---
 
-» From: James Drougas < 
+» [[From]]: James Drougas < 
 » Hi Paul. I've been spending lots of time with Irwin Corey and his family past two weeks especially. 
 He was in hospital until the last week and then He died a few hours ago peacefully at home in bed. Last 
 night he told me Trump will be assassinated soon. He was eager to learn the news each day. I asked him 
@@ -15,6 +15,6 @@ months. Alas he was laughing and smiling till the end and frowning about Trump.
 >> 
 » Jim Drouaas 
 >> 
-» My friend Alana, a young comedian, was here with him most nights. Irwin used to say he will live to 
+» My friend Alana, a young comedian, was here with him most nights. Irwin used [[To]] say he will live [[To]] 
 147. Alana explained that 102 is 147 in comedian years. 
 HOUSE OVERSIGHT 030214

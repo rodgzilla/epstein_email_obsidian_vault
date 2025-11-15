@@ -5,4 +5,4 @@ receiver: "[[Subject]]"
 date: 
 ---
 
-Begin forwarded message:
+Begin [[Forwarded Message]]:

@@ -5,23 +5,23 @@ receiver: "[[jeevacation@gmail.com]]"
 date: "2019-03-07 15:02:42"
 ---
 
-Reply-To: "HumanEvents.com" <r-
-ysmIlbbqqlsnfcqqgvnrswzfrrbsfrffsqzpggvggfvzccqwtsb@humaneventsmail.com  
+Reply-[[To]]: "HumanEvents.[[Com]]" <r-
+ysmIlbbqqlsnfcqqgvnrswzfrrbsfrffsqzpggvggfvzccqwtsb@humaneventsmail.[[Com]]  
 =VA.Vg. 
 ' Te. 
 Media Magic: How a Democrat Pedophile 
 Became a 'Trump Scandal' 
 Strangely, the media have suddenly taken an intense interest in the case of pedophile and 
-major Democratic donor Jeffrey Epstein. 
+major Democratic donor [[Jeffrey]] [[Epstein]]. 
 HOUSE OVERSIGHT 029907 
 In 2005, the Palm Beach police were told by the mother of a young girl in West Palm Beach 
-that her daughter had been brought to the Democratic donor's mansion and asked to have 
-sex with him for money. This kicked off an intensive, one-year undercover investigation. 
-The police sifted through Epstein's garbage and interviewed 17 witnesses, including the 
-housemen, who told of sex toys and dildos left behind after the underage girls left. One of 
-Epstein's procurers, a 20-year-old local woman named Haley Robson, who was paid $200 
-for every teenaged girl she brought to Jeffrey, was cooperating with police, telling them she 
-was like "Heidi Fleiss." They obtained statements from five of Epstein's young victims, who 
-said they'd been paid $200 to $300 to engage in various sex acts with ... 
+that her daughter had been brought [[To]] the Democratic donor's mansion and asked [[To]] have 
+sex with him for money. This kicked off an intensive, one[[-]]year undercover investigation. 
+The police sifted through [[Epstein]]'s garbage and interviewed 17 witnesses, including the 
+housemen, who told of sex toys and dildos left behind after the underage [[Girls]] left. One of 
+[[Epstein]]'s procurers, a 20[[-]]year[[-]]old local woman named Haley Robson, who was paid $200 
+for every teenaged girl she brought [[To]] [[Jeffrey]], was cooperating with police, telling them she 
+was like "Heidi Fleiss." They obtained statements [[From]] five of [[Epstein]]'s young victims, who 
+said they'd been paid $200 [[To]] $300 [[To]] engage in various sex acts with ... 
 Continue reading... 
 a a

@@ -6,13 +6,13 @@ date: "2017-05-22 20:53:05"
 ---
 
 Oy. 
-DARREN K. INDYKE 
-DARREN K. INDYKE, PLLC 
+[[Darren]] K. [[Indyke]] 
+[[Darren]] K. [[Indyke]], PLLC 
 575 Lexington Avenue, 4th Floor 
 New York, New York 10022 
 Telephone: 
 Telecopier: 
 Mobile: 
-email: dkiesq@aol.com  
-**** Please note that my mobile telephone number has changed to the new number provided above. 
+email: [[dkiesq@aol.com]]  
+**** Please note that my mobile telephone number has changed [[To]] the new number provided above. 
 ***

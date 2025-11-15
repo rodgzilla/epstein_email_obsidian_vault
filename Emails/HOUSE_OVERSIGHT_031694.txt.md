@@ -5,4 +5,4 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2011-04-30 21:36:09"
 ---
 
-Sent via BlackBerry by AT&T
+[[Sent]] [[Via]] BlackBerry by AT&T

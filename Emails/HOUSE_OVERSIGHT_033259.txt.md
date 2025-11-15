@@ -6,7 +6,7 @@ date: "2017-11-17 02:32:27"
 ---
 
 https://www.cnbc.com/2017/11/16/reid-hoffman-trump-worse-than-useless.html 
-Richard Kahn 
+[[Richard Kahn]] 
 HBRK Associates Inc. 
 575 Lexington Avenue, 4th Floor 
 New York, NY 10022 

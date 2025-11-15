@@ -17,7 +17,7 @@ m <span dir=3D"ltr">&lt;<a href=3D"mailto:
 eft-color: rgb(204, 204, 204); border-left-width: 1px; border-left-style: s= 
 olid;" class=3D"gmail_quote"› 
 <div bgcolor=3D"#FFFFFF"> 
-<div>Dear Jeffrey, </div> 
+<div>Dear [[Jeffrey]], </div> 
 <div><br> 
 </div> 
 <div>I am sorry I did not call back Yesterday-I was exhausted from a crazy = 
@@ -50,7 +50,7 @@ nderfull&nbsp;</div>
 <div>BE</div> 
 <div><br> 
 Barbro C. Ehnbom 
-<div>Sent from iPad&nbsp;</div> 
+<div>Sent [[From]] iPad&nbsp;</div> 
 </div> 
 <div><br> 
 Vidarebefordrat brev:<br> 

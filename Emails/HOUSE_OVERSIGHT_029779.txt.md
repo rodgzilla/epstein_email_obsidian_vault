@@ -1,39 +1,39 @@
----
+[[-]][[To]][[[To]]]][[To]][[Girls]][[To]][[-]][[To]][[-]][[-]][[To]][[-]][[-]][[To]][[To]][[To]][[To[[From]]To]][[[-]]From]][[To]]To]][[To]][[To]][[To]][[To]][[To]][[-]][[To[[From]]To]][[To]][[To]][[-]][[To]][[To]][[Robert]][[Com]][[Robert]][[To]][[To]][[To]][[To]][[[To]]o]][[-]][[To]][[-]][[-]][[From]][[To]][[I]][[I]][[To]][[To]][[To]][[To]][[To]][[To]][[-]][[To]][[To]][[To]][[To]][[To]][[To]][[To]][[I]][[-]][[-]][[I]][[To]][[I]][[From]][[To]][[I]][[-]][[From]][[Fro[[-]]]][[January 31]][[From]][[To]][[To]][[From]][[Wrote]][[To]][[To]][[From]][[To]][[-]][[Robert]][[To]][[To]][[To]][[-]][[-]][[To]][[To]][[-]][[To]][[To]][[To]][[F[[To]]m]][[To]][[To]][[-]][[-]][[-]][[Quiet]][[1]][[-]][[[To]]]][[-]][[To]][[1]][[-]][[To]][[To]][[To]][[To]][[To]][[To]][[From]][[To]][[To]][[To]][[To][[To]][To]][[1]][[From]][[Date]][[To]][[To]][[To]][[To]][[To]][[To]][[To]][[To]][[To]][[To]][[To]][[To]][[1]][[To]][[1]][[To]][[To]][[1]][[To]][[To]][[To]][[-]][[-]][[To]][[1]][[Date]][[To]][[Robert]][[To]][[L]][[To]][[To]][[To]][[To]][[From]][[To]][[To]][[From]][[-]][[To]][[From]][[To]][[To]][[To]][[-]][[To]][[To]][[To]][[To]][[To]][[To]][[To]][[To]][[To]][[To]][[To]][[To]][[To]][[To]][[To]][[To]][[From]][[To]][[To]][[To]][[To]][[To][[To]][To]][[-]][[To]][[To]][[To]][[To]][[To]][[To]][[-]][[To]][[-]][[To]][[-]][[To]][[To]][[From]][[From]][[To]][[To]][[To]][[To]][[To]][[To]][[To]][[To]][[To]][[-]][[To]][[-]][[To]][[To]][[To]][[To]][[Via]][[1]][To]][[To]][[To]][[To]][[To]][[To]][[From]][[To]][[From]][[From]][[To]][[To]][[To]][[To]][[From]][[To]][[To]][[To]][[To]][[To]][[From]][[To]][[To]][[-]][[To]][[To]][[To]][[To]][[To]]---
 filename: "HOUSE_OVERSIGHT_029779.txt"
 sender: "[[Sent]]"
 receiver: "[[Article 1.]]"
 date: 
 ---
 
-Article 1. 
-Jeffrey Epstein [jeeyacation@gmail.com] 
+Article [[1]]. 
+[[Jeffrey]] [[Epstein]] [[[jeeyacation@gmail.com]]] 
 2/14/2013 8:47:12 PM 
-Larry Summers 
+[[Larry]] [[Summers]] 
 Washington Post 
-Obama to make first trip  
-to Israel, part of a  
+Obama [[To]] make first trip  
+[[To]] Israel, part of a  
 potential 'new  
 beginning' with region  
 Scott Wilson 
-President Obama will travel to Israel and 
+President Obama will travel [[To]] Israel and 
 the occupied Palestinian territories next 
-month to make an early second-term push 
+month [[To]] make an early second[[-]]term push 
 for peace negotiations between two 
-divided governments and to assess the 
+divided governments and [[To]] assess the 
 broader political developments remaking 
 the Middle East. 
 It will be Obama's first trip as president 
-to Israel, where suspicions run high in the 
+[[To]] Israel, where suspicions run high in the 
 aftermath of his unsuccessful early efforts 
 at Middle East peacemaking. 
 The choice of destination — one that 
 Obama avoided in his first term — 
 suggests a revival of his ambitions abroad 
 after a year of virtual dormancy on 
-foreign affairs. The timing also points to 
-a willingness on his part to quickly 
+foreign affairs. The timing also points [[To]] 
+a willingness on his part [[To]] quickly 
 reengage a politically volatile foreign-
-Office of Terje Rod-Larsen 
+Office of [[Terje Rod-larsen]] 
 Show details 
 Ads — Why these ads? 
 Free Spell Check Toolbar  
@@ -52,7 +52,7 @@ Great Jobs For CNAs/LPNs
 Join Our Team of Qualified Nurses! 
 Offering Competitive Salaries. 
 www.TowneNursing.com/NursingJobs  
-Silver Prices to Drop 25%  
+Silver Prices [[To]] Drop 25%  
 Gain 67% if Buy after Correction. 
 As Silver Price Soars into 2013 
 www.sovereign-investor.com 
@@ -76,12 +76,12 @@ revolt.
 After Obama helped topple Moammar  
 Gaddafi in Libya in 2011, many in the 
 region wondered when he would emerge 
-again to help shape the course of the 
+again [[To]] help shape the course of the 
 tumultuous Arab Spring, which has 
 replaced a pair of U.S.-allied 
 dictatorships with elected Islamist 
 governments. 
-Within the Israeli-Palestinian conflict, 
+Within the Israeli[[-]]Palestinian conflict, 
 much has changed since the direct peace 
 talks Obama inaugurated in September  
 2010 collapsed within weeks. Israel's 
@@ -91,29 +91,29 @@ predicting a wider fight in the future, as
 divisions deepened within the Palestinian 
 and Israeli electorates over whether talks 
 or war would resolve the conflict. 
-"To make it a substantive trip that is 
-more than a positive photo-op would 
+"[[To]] make it a substantive trip that is 
+more than a positive photo[[-]]op would 
 require setting up a specific framework 
 for an agreement and setting a tight 
-deadline to achieve it," said Jeremy Ben-
-Ami, the executive director of J Street, a 
+deadline [[To]] achieve it," said Jeremy Ben-
+Ami, the executive director of [[J]] Street, a 
 nonprofit group that advocates the 
 HOUSE OVERSIGHT 029780 
 creation of a Palestinian state alongside 
 Israel. 
 White House officials would not provide 
-a date for Obama's trip, which he will 
+a [[Date]] for Obama's trip, which he will 
 squeeze into the tight schedule he is 
 building around a busy domestic agenda 
 that includes immigration, guns and the 
 economy. 
 But Israeli media reported that Obama is 
-scheduled to arrive March 20 as part of a 
+scheduled [[To]] arrive March 20 as part of a 
 trip that will include a stop in Jordan, 
-where the civil war in next-door Syria 
+where the civil war in next[[-]]door Syria 
 and its growing refugee crisis is 
-presenting a major challenge to King 
-Abdullah II, a U.S. ally. 
+presenting a major challenge [[To]] [[King]] 
+Abdullah [[Ii]], a U.S. ally. 
 Obama began his first term by making a 
 strong push for peace talks between Israel 
 and the Palestinians, believing the 
@@ -121,8 +121,8 @@ conflict fueled radicalism in the region in
 general and toward the United States in 
 particular, given its historical support for 
 the Jewish state. 
-In contrast to predecessor George W. 
-Bush, Obama wanted to demonstrate to 
+In contrast [[To]] predecessor George [[W]]. 
+Bush, Obama wanted [[To]] demonstrate [[To]] 
 Arab governments that the United States 
 would make demands of Israel in pursuit 
 of a regional peace agreement. 
@@ -131,14 +131,14 @@ Netanyahu made little secret of his
 preference for Republican Mitt Romney  
 in last year's U.S. presidential campaign. 
 Netanyahu and Obama have at times 
-disagreed bitterly over issues relating to 
+disagreed bitterly over issues relating [[To]] 
 HOUSE OVERSIGHT 029781 
 the Palestinians, including Israel's 
 continued settlement construction in the 
 West Bank and East Jerusalem. 
 Israel's military occupied those 
 territories, along with Gaza, in the 1967 
-Arab-Israeli war. Palestinians view them 
+Arab[[-]]Israeli war. Palestinians view them 
 as the key territorial elements of their 
 future state. 
 In a June 2009 address in Cairo, a speech 
@@ -156,44 +156,44 @@ campaign issue.
 But on regional security issues, Obama 
 and Netanyahu have deepened 
 cooperation amid rising U.S. military aid 
-to Israel. Obama has agreed with 
+[[To]] Israel. Obama has agreed with 
 Netanyahu that Iran must not be allowed 
-to use its uranium-enrichment program to 
+[[To]] use its uranium[[-]]enrichment program [[To]] 
 develop a nuclear weapon, an issue that 
 the two will discuss during Obama's 
 visit. 
-Netanyahu's Likud party emerged from 
+Netanyahu's Likud party emerged [[From]] 
 elections last month as the largest bloc in 
 Israel's parliament, meaning that he will 
 serve another term as prime minister. But 
 HOUSE OVERSIGHT 029782 
 a surprisingly strong showing by a new 
-centrist party is likely to put more 
-pressure on him to pursue talks. 
-"It was a mistake for Obama not to go in 
+centrist party is likely [[To]] put more 
+pressure on him [[To]] pursue talks. 
+"It was a mistake for Obama not [[To]] go in 
 the first term at a time when it could have 
 affected Israeli public opinion of him, 
-and now, it has hardened against him to a 
-point that I don't believe it can," said 
+and now, it has hardened against him [[To]] a 
+point that [[I]] don't believe it can," said 
 Elliott Abrams, a senior fellow at the 
 Council on Foreign Relations who served 
-as a senior Middle East adviser to Bush. 
+as a senior Middle East adviser [[To]] Bush. 
 Obama's visit will coincide with growing 
-concern in the region that the two-state 
+concern in the region that the two[[-]]state 
 solution favored by him is in peril, as 
 Israeli settlement construction continues 
 and as the Islamist Hamas gains clout 
-within the once-secular Palestinian 
+within the once[[-]]secular Palestinian 
 nationalist movement. Hamas emerged  
-stronger politically from the recent clash 
-with Israel and continues to reject the 
-Jewish state's right to exist. 
+stronger politically [[From]] the recent clash 
+with Israel and continues [[To]] reject the 
+Jewish state's right [[To]] exist. 
 Hamas and its secular rival Fatah are due 
-to meet Saturday as part of a 
+[[To]] meet Saturday as part of a 
 reconciliation process. If an agreement is 
 reached and Hamas joins the Palestinian 
 Authority, Obama will be faced with an 
-awkward decision on whether to meet 
+awkward decision on whether [[To]] meet 
 with a government that includes members 
 of a U.S.-
 designated terrorist movement. 
@@ -212,17 +212,17 @@ Israel.
 has an interest, not just in the peace issue, 
 but also in the broader concerns that 
 Israel is facing," said Dennis Ross, a 
-senior Middle East adviser to Obama 
+senior Middle East adviser [[To]] Obama 
 during his first term who is at the 
 Washington Institute for Near East  
 Policy. "In some ways, it will be the 
-president traveling to Israel to ask for a 
+president traveling [[To]] Israel [[To]] ask for a 
 new beginning." 
 Article 2. 
 Foreign Policy 
 Saeb Erekat - The Peace  
 Processor  
-An interview by Aaron David Miller 
+An interview by Aaron [[David]] [[Miller]] 
 February 5, 2013 -- Other than Mahmoud 
 Abbas, Saeb Erekat could be the most 
 recognizable Palestinian on the planet. 
@@ -233,7 +233,7 @@ HOUSE OVERSIGHT 029784
 Palestinian side knows the substance of 
 the issues or the negotiating history 
 better. 
-I first met Erekat in the late 1980s, while 
+[[I]] first met Erekat in the late 1980s, while 
 working on the Palestinian issue for then 
 Secretary of State George Shultz. Back 
 then, the U.S.-educated diplomat was 
@@ -246,22 +246,22 @@ He annoyed then Secretary of State
 James Baker by wearing his kaffiyeh 
 around his shoulders at the opening of the 
 Madrid Peace Conference in October 
-1991. And over the years, he continued to 
+1991. And over the years, he continued [[To]] 
 annoy the Israelis too with his fiery 
-performances on CNN -- though to this 
+performances on CNN -- though [[To]] this 
 day, key Israeli negotiators, such as Isaac 
-Molho, continue to praise his pragmatism 
+Molho, continue [[To]] praise his pragmatism 
 at the bargaining table. 
 It was Erekat's academic bent, analytical 
-chops, and capacity to write in English 
-that would make him so indispensable to 
+chops, and capacity [[To]] write in English 
+that would make him so indispensable [[To]] 
 the only Palestinian who really counted 
 in those days -- Yasir Arafat. Erekat was 
 a unique figure -- neither a fighter (no 
 nom de guerre for him), nor a PLO 
-insider, nor an organization man from 
+insider, nor an organization man [[From]] 
 Tunis. Rather, he was a West Banker 
-from Jericho, and he succeeded in 
+[[From]] Jericho, and he succeeded in 
 maintaining his relevance in a Palestinian 
 HOUSE OVERSIGHT 029785 
 political scene dominated not by fellow 
@@ -271,40 +271,40 @@ days of the peace process, he became a
 key point of contact for the Americans, 
 the Israelis, the Arabs, and much of the 
 rest of the international community. 
-I came to know Erekat not only as a 
-negotiator, but as a person. He sent his 
-kids to Seeds of Peace, a conflict 
+[[I]] came [[To]] know Erekat not only as a 
+negotiator, but as a person. He [[Sent]] his 
+kids [[To]] Seeds of Peace, a conflict 
 resolution and coexistence organization 
-that I ran briefly after leaving the State 
+that [[I]] ran briefly after leaving the State 
 Department, and my daughter befriended 
 his and stayed with the Erekats in 
-Jericho. Saeb and I have yelled at each 
+Jericho. Saeb and [[I]] have yelled at each 
 other, defended our respective positions, 
 laughed, and mourned opportunities that 
 were never adequately explored. But 
 through it all, what he said about himself 
-was true: He wasn't as pro-Palestinian or 
-pro-Israeli as much as he was pro-peace. 
-That peace has proven elusive to this day. 
+was true: He wasn't as pro[[-]]Palestinian or 
+pro[[-]]Israeli as much as he was pro[[-]]peace. 
+That peace has proven elusive [[To]] this day. 
 But with all our differences -- and there 
-are many -- I believe Erekat believes in 
+are many -- [[I]] believe Erekat believes in 
 its possibility. Who else would list as an 
 "objective" on his resume: "Solve the 
-Palestinian-Israeli conflict based on a two 
+Palestinian[[-]]Israeli conflict based on a two 
 state negotiated solution through 
 diplomatic offices"? 
-If, or perhaps when, another effort to 
+If, or perhaps when, another effort [[To]] 
 negotiate a deal is made, one thing is 
 clear -- Erekat will be in the middle of it. 
-Last week, he agreed to answer my 
+Last week, he agreed [[To]] answer my 
 HOUSE OVERSIGHT 029786 
 questions on the past and future of the 
-Israeli-Palestinian problem. 
+Israeli[[-]]Palestinian problem. 
 FP: What were your best and worst 
-moments in the Israeli-Palestinian 
+moments in the Israeli[[-]]Palestinian 
 negotiations, and what was the greatest 
 missed opportunity? 
-Saeb Erekat: Though I was not the chief 
+Saeb Erekat: Though [[I]] was not the chief 
 negotiator at that moment, the connection 
 between [then Prime Minister Yitzhak] 
 Rabin and President Arafat made 
@@ -313,8 +313,8 @@ feel that peace was possible. There was
 significant progress in all tracks until 
 Rabin's assassination by an Israeli 
 terrorist -- after he was killed, no Israeli 
-leader had the vision to understand that 
-the window of opportunity for a two-state 
+leader had the vision [[To]] understand that 
+the window of opportunity for a two[[-]]state 
 solution would close as fast as they 
 continued their colonization policies. 
 The missed opportunity has definitely 
@@ -322,7 +322,7 @@ been Israel throwing away the Arab
 Peace Initiative, which offers 
 normalization of relations of 57 countries 
 with Israel in exchange for Israeli 
-withdrawal to the 1967 border. They 
+withdrawal [[To]] the 1967 border. They 
 threw it away by bombing Gaza, by 
 intensifying collective punishments, and 
 by increasing settlement construction all 
@@ -337,122 +337,122 @@ SE: The fact that, two decades after Oslo,
 we are still a nation under occupation 
 shows that Israeli governments did derail 
 it. The interim accords were not supposed 
-to last for 20 years but only five. After 
-that, we were going to enjoy freedom and 
+[[To]] last for 20 years but only five. After 
+that, we were going [[To]] enjoy freedom and 
 sovereignty. 
 But Israel increased its settlement 
 expansion. In fact, within 20 years, the 
 number of settlers almost tripled. The 
-institution-building efforts led by the 
+institution[[-]]building efforts led by the 
 Palestinian government have been 
 completely undermined by the lack of 
 freedom. This situation cannot continue. 
 Oslo succeeded in bringing back 250,000 
-Palestinians from the diaspora and 
+Palestinians [[From]] the diaspora and 
 building the capacity for our state. The 
 international community failed though, 
 by granting Israel an unprecedented 
-culture of impunity that allowed them to 
-use negotiations as a means to continue 
+culture of impunity that allowed them [[To]] 
+use negotiations as a means [[To]] continue 
 rather than stop colonization. 
 FP: What is the most important 
 thing Israelis don't understand about 
 Palestinians? 
 SE: That we are not going anywhere. As 
-simple as that. We are not going to 
+simple as that. We are not going [[To]] 
 disappear just because their government 
 builds an annexation wall around us. 
 HOUSE OVERSIGHT 029788 
 They should close their eyes and imagine 
 their state within 10 years time. What do 
 they see? If they continue their policies, 
-they are going to officially adopt the form 
-of an apartheid regime, which I think is 
+they are going [[To]] officially adopt the form 
+of an apartheid regime, which [[I]] think is 
 not what many Israelis want. 
 FP: What is the most important thing 
 Palestinians have learned about Israelis? 
 SE: That Israelis will not take back the 
-ships that brought them here to leave 
-somewhere else. We got to understand 
-that we have to live side by side. The 
+ships that brought them here [[To]] leave 
+somewhere else. We got [[To]] understand 
+that we have [[To]] live side by side. The 
 rules of engagement, though, cannot be 
 those of apartheid, but those of freedom. 
-FP: What do you expect from the next 
+FP: What do you expect [[From]] the next 
 Israeli government on the peace process? 
-SE: I don't think there is room for 
+SE: [[I]] don't think there is room for 
 optimism, but our position hasn't 
 changed. We don't see any other solution 
-than a two-state solution. Any Israeli 
+than a two[[-]]state solution. Any Israeli 
 government that recognizes this fact and 
 respects what previous governments have 
 agreed upon should become a partner for 
 peace. 
-FP: Is Hamas-Fatah unity possible, and 
+FP: Is Hamas[[-]]Fatah unity possible, and 
 what would the impact be on the future of 
-Israeli-Palestinian negotiations? 
-SE: We expect to have progress in the 
+Israeli[[-]]Palestinian negotiations? 
+SE: We expect [[To]] have progress in the 
 near future, with Hamas allowing the 
-Central Elections Commission to register 
-new voters in Gaza. I believe there is 
+Central Elections Commission [[To]] register 
+new voters in Gaza. [[I]] believe there is 
 political agreement -- in fact, there is a 
-signed agreement. We expect to have 
+signed agreement. We expect [[To]] have 
 HOUSE OVERSIGHT 029789 
 elections as soon as possible, which is the 
-right way to solve our differences: Let 
+right way [[To]] solve our differences: Let 
 our people decide, those in Palestine as 
 well as our people in the Diaspora. 
 Having said so, Hamas has recognized 
 the Palestine Liberation Organization as 
 the sole and legitimate representative of 
 the Palestinian people, including its 
-mandate to negotiate a final status 
+mandate [[To]] negotiate a final status 
 agreement with Israel. Once that is 
-achieved, we expect to hold a national 
+achieved, we expect [[To]] hold a national 
 referendum. 
 FP: How would you describe Egypt's 
 role in the peace process now? What do 
-you expect from President Barack 
-Obama's administration with regards to 
+you expect [[From]] President Barack 
+Obama's administration with regards [[To]] 
 the peace process? 
 SE: Egypt has played a central role, and 
-continues to do so. We trust that Egypt, 
+continues [[To]] do so. We trust that Egypt, 
 under President Mohamed Morsy's 
-leadership, will continue to play a strong 
+leadership, will continue [[To]] play a strong 
 role because Palestine and Egypt have a 
 common interest in achieving peace. 
 President Obama had stated that he has a 
-personal commitment to bring peace to 
+personal commitment [[To]] bring peace [[To]] 
 the Middle East. We, the Egyptians, and 
 the rest of the Arab world tell him that we 
 are ready for peace. We have the Arab 
 Peace Initiative. This goes in line with 
 the stated U.S. national interest. 
-Washington's failure to explicitly say that 
-Israel is to blame for choosing 
+Washington's failure [[To]] explicitly say that 
+Israel is [[To]] blame for choosing 
 HOUSE OVERSIGHT 029790 
-settlements over peace has contributed to 
+settlements over peace has contributed [[To]] 
 Israel's culture of impunity. 
 FP: Can America be an effective broker 
 in negotiations? 
-SE: If the U.S. decides to be an honest 
+SE: If the U.S. decides [[To]] be an honest 
 broker, it could not only be effective but 
-in fact could bring real peace to the 
+in fact could bring real peace [[To]] the 
 region, a just and lasting one. The U.S. 
 has a moral obligation toward the 
 Palestinian people, who have been under 
 occupation and living in exile for 
 decades. 
 FP: Is a two state solution still possible? 
-SE: Yes, but only if there is a political 
+SE: [[Yes]], but only if there is a political 
 will. So far, Israel's will is about 
 colonization, and the international 
-community has failed to put an end to 
+community has failed [[To]] put an end [[To]] 
 decades of double standards by treating 
 Israel as a state above the law. We don't 
-see any other solution than a two-state 
-solution, though Israel is taking us to a 
-one-state reality. 
-Aaron David Miller is a distinguished 
+see any other solution than a two[[-]]state 
+solution, though Israel is taking us [[To]] a 
+one[[-]]state reality. 
+Aaron [[David]] [[Miller]] is a distinguished 
 scholar at the Woodrow Wilson 
 International Center for Scholars. 
 Article 3. 
@@ -467,42 +467,42 @@ political parties and charged Benjamin
 Netanyahu with forming a new coalition, 
 Israel's respected President, Shimon 
 Peres, is once again very much in the 
-news. In his speech inviting Netanyahu to 
+news. In his speech inviting Netanyahu [[To]] 
 form the next government, the President 
 spoke forcefully about peace and even 
-seemed to influence Bibi to mention 
+seemed [[To]] influence Bibi [[To]] mention 
 peace, a word he never used in his 
 election campaign. Peres has rightly 
-earned respect for this from many 
+earned respect for this [[From]] many 
 quarters, but now, as the coalition is 
-being formed, it might be a good time to 
+being formed, it might be a good time [[To]] 
 examine one aspect of Israel's political 
 culture: the lack of respect for the task of 
 a parliamentary opposition. Peres is at 
-least partly to blame for this, as he almost 
-always preferred to join various 
+least partly [[To]] blame for this, as he almost 
+always preferred [[To]] join various 
 administrations—even as a junior 
 partner—rather than lead the opposition, 
 ofen citing "our grave situation" and 
 "national responsibility." Now is surely 
-a better time to criticize Peres than in 
+a better time [[To]] criticize Peres than in 
 June, when the world (maybe even 
 including President Barack Obama) will 
-be coming here to celebrate his 90th 
+be coming here [[To]] celebrate his 90th 
 birthday. Then, surely, everyone will be 
-paying deserved tribute to the wisdom of 
+paying deserved tribute [[To]] the wisdom of 
 this elder statesman and prophet of peace, 
-and it would be a shame to spoil the 
+and it would be a shame [[To]] spoil the 
 HOUSE OVERSIGHT 029792 
 party. So let's clear the air right now, 
 well before the festivities. Before we get 
-to the matter of coalition politics, which 
+[[To]] the matter of coalition politics, which 
 is very much on our minds right now as 
-Netanyahu struggles to put together a 
+Netanyahu struggles [[To]] put together a 
 government, let us consider the other 
 negative part of the Peres legacy: his stint 
 as Defense Minister under Prime Minister 
-Yitzhak Rabin from 1974 to 1977. Today 
+Yitzhak Rabin [[From]] 1974 [[To]] 1977. Today 
 Peres is widely respected as the architect 
 of the Oslo Accord of 1993, achieved 
 while he was Foreign Minister. It was the 
@@ -512,18 +512,18 @@ Peres deserves huge credit for securing
 the agreement. However, two decades 
 earlier, as Defense Minister, he supported 
 the Jewish settlement project in the 
-newly-conquered Palestinian territories, 
+newly[[-]]conquered Palestinian territories, 
 both overtly and covertly. Not for 
 nothing did Rabin label Peres in his 
 memoirs as "an indefatigable intriguer." 
 In 1975, while Rabin was doing his 
-utmost to prevent the settlement of Elon 
+utmost [[To]] prevent the settlement of Elon 
 Moreh, near Nablus, Peres continuously 
 sabotaged his efforts. After no less than 
 eight settlement attempts, which were 
 ruled illegal by Israel's Supreme Court, a 
 "compromise" was reached, and Elon 
-Moreh was established five kilometers to 
+Moreh was established five kilometers [[To]] 
 the east of the original site. Moreover, 
 during the furor over Elon Moreh, 
 Defense Minister Peres quietly facilitated 
@@ -534,26 +534,26 @@ become flagships of the settlement
 movement, were the start of Jewish 
 colonization in Samaria, the northern part 
 of the West Bank. The previous year, as 
-a young reporter, I interviewed Peres, 
+a young reporter, [[I]] interviewed Peres, 
 after he and his political ally Moshe 
-Dayan had refused "on principle" to join 
+Dayan had refused "on principle" [[To]] join 
 the government of Golda Meir. "If a 
 single child can learn that politics is not 
-just intrigues," Peres told me, "I will be 
+just intrigues," Peres told me, "[[I]] will be 
 satisfied that we have done our bit." Just 
 one week later, when he and Dayan had 
 reversed their position for no discernable 
 reason, and were seated snugly around 
-the cabinet table, I asked Peres what he 
-had to say to the "single child." His aides 
+the cabinet table, [[I]] asked Peres what he 
+had [[To]] say [[To]] the "single child." His aides 
 sniggered, but Peres didn't bat an eyelid: 
-"Just what my mentor, David Ben-Gurion 
+"Just what my mentor, [[David]] Ben[[-]]Gurion 
 (Israel's first Prime Minister) told me: 
 when the security of Israel is laid on one 
 side of the scales, and everything else on 
 the other side, security tips the 
 balance." Peres subsequently used that 
-self-same argument to join every 
+self[[-]]same argument [[To]] join every 
 government that would have him. The 
 late Menachem Begin lost nine elections 
 before finally becoming Israel's Prime 
@@ -570,12 +570,12 @@ proposed the ideal of "national unity,"
 and greatly devalued the democratic 
 concept of parliamentary opposition. 
 Former Foreign Minister Tzipi Livni 
-ruined her reputation when she refused to 
+ruined her reputation when she refused [[To]] 
 join Netanyahu in his last government. 
 While it is quite true that Livni was an 
 ineffective opposition leader, it is the 
-very fact of her refusal to join the 
-administration and "influence it from 
+very fact of her refusal [[To]] join the 
+administration and "influence it [[From]] 
 within" that has provoked most of the 
 criticism by Israeli political 
 commentators. Similar criticism is 
@@ -584,9 +584,9 @@ leader Shelly Yachimovich for stating
 clearly that she would not join 
 Netanyahu's next government, but would 
 serve as leader of the opposition. There 
-are certainly many reasons to criticize 
+are certainly many reasons [[To]] criticize 
 Yachimovich, but not her eminently 
-democratic decision to lead the 
+democratic decision [[To]] lead the 
 parliamentary opposition. Very few of 
 our political commentators have ever 
 expressed respect or even understanding 
@@ -602,11 +602,11 @@ HOUSE OVERSIGHT 029795
 So, although the Peres vision of peace is 
 a positive legacy, he has also taught us 
 less helpful lessons. The settlements are a 
-supremely negative inheritance, but I 
-would argue that the anti-democratic 
+supremely negative inheritance, but [[I]] 
+would argue that the anti[[-]]democratic 
 rejection of the concept of a 
 parliamentary opposition is an even more 
-harmful bequest handed down to us by 
+harmful bequest handed down [[To]] us by 
 President Shimon Peres. 
 Daniel Gavron, who lives in Israel, is a 
 former journalist and the author of nine 
@@ -618,12 +618,12 @@ Palestinians (Rowman & Littlefield,
 Article 4. 
 NYT 
 India vs. China vs. Egypt 
-Thomas L. Friedman  
+Thomas [[L]]. Friedman  
 February 5, 2013 -- New Delhi -- It's 
-hard to escape a visit to India without 
-someone asking you to compare it to 
-China. This visit was no exception, but I 
-think it's more revealing to widen the 
+hard [[To]] escape a visit [[To]] India without 
+someone asking you [[To]] compare it [[To]] 
+China. This visit was no exception, but [[I]] 
+think it's more revealing [[To]] widen the 
 aperture and compare India, China and 
 Egypt. India has a weak central 
 government but a really strong civil 
@@ -632,11 +632,11 @@ HOUSE OVERSIGHT 029796
 associations at every level. China has a 
 muscular central government but a weak 
 civil society, yet one that is clearly 
-straining to express itself more. Egypt, 
+straining [[To]] express itself more. Egypt, 
 alas, has a weak government and a very 
 weak civil society, one that was 
 suppressed for 50 years, denied real 
-elections and, therefore, is easy prey to 
+elections and, therefore, is easy prey [[To]] 
 have its revolution diverted by the one 
 group that could organize, the Muslim 
 Brotherhood, in the one free space, the 
@@ -650,14 +650,14 @@ thrive the most in the 21st century will be
 the one that is most successful at 
 converting its youth bulge into a 
 "demographic dividend" that keeps 
-paying off every decade, as opposed to a 
+paying off every decade, as opposed [[To]] a 
 "demographic bomb" that keeps going 
 off every decade. That will be the society 
 that provides more of its youth with the 
-education, jobs and voice they seek to 
+education, jobs and voice they seek [[To]] 
 realize their full potential. 
 This race is about "who can enable and 
-inspire more of its youth to help build 
+inspire more of its youth [[To]] help build 
 broad societal prosperity," argues Dov 
 Seidman, the author of "How" and 
 C.E.O. of LRN, which has an operating 
@@ -668,7 +668,7 @@ environments where young people can be
 on a quest, not just for a job, but for a 
 career — for a better life that doesn't just 
 surpass but far surpasses their parents." 
-Countries that fail to do that will have a 
+Countries that fail [[To]] do that will have a 
 youth bulge that is not only unemployed, 
 but unemployable, he argued. "They will 
 be disconnected in a connected world, 
@@ -676,7 +676,7 @@ despairing as they watch others build and
 realize their potential and curiosity." 
 If your country has either a strong 
 government or a strong civil society, it 
-has the ability to rise to this challenge. If 
+has the ability [[To]] rise [[To]] this challenge. If 
 it has neither, it will have real problems, 
 which is why Egypt is struggling. China 
 leads in providing its youth bulge with 
@@ -686,10 +686,10 @@ India is the most intriguing case — if it
 can get its governance and corruption 
 under control. The quest for upward 
 mobility here, especially among women 
-and girls, is palpable. I took part in the 
+and [[Girls]], is palpable. [[I]] took part in the 
 graduation ceremony for The Energy and 
 Resources Institute last week. Of 12 
-awards for the top students, 11 went to 
+awards for the top students, 11 went [[To]] 
 women. 
 "India today has 560 million young 
 people under the age of 25 and 225 
@@ -697,40 +697,40 @@ million between the ages of 10 and 19,"
 explained Shashi Tharoor, India's 
 minister of state for human resource 
 development. "So for the next 40 years 
-we should have a youthful working-age 
+we should have a youthful working[[-]]age 
 HOUSE OVERSIGHT 029798 
 population" at a time when China and the 
 broad industrialized world is aging. 
-According to Tharoor, the average age in 
+According [[To]] Tharoor, the average age in 
 China today is around 38, whereas in 
 India it's around 28. In 20 years, that gap 
 will be much larger. So this could be a 
 huge demographic dividend — "provided 
 that we can educate our youth — offering 
-vocational training to some and 
-university to others to equip them to take 
-advantage of what the 21st-century global 
+vocational training [[To]] some and 
+university [[To]] others [[To]] equip them [[To]] take 
+advantage of what the 21st[[-]]century global 
 economy offers," said Tharoor. "If we get 
 it right, India becomes the workhorse of 
 the world. If we get it wrong, there is 
 nothing worse than unemployable, 
 frustrated" youth. 
 Indeed, some of India's disaffected youth 
-are turning to Maoism in rural areas. "We 
+are turning [[To]] Maoism in rural areas. "We 
 have Maoists among our tribal 
-populations, who have not benefited from 
+populations, who have not benefited [[From]] 
 the opportunities of modern India," 
 Tharoor said. There have been violent 
 Maoist incidents in 165 of India's 625 
 districts in recent years, as Maoists tap 
 into all those left out of the "Indian 
 dream." So there is now a huge push here 
-to lure poor kids into school. India runs 
+[[To]] lure poor kids into school. India runs 
 the world's biggest midday lunch 
 program, serving 250 million free school 
 lunches each day. It's also doubled its 
 number of Indian Institutes of 
-Technology, from eight to 16, and is 
+Technology, [[From]] eight [[To]] 16, and is 
 planning 14 new universities for 
 innovation and research. 
 HOUSE OVERSIGHT 029799 
@@ -740,10 +740,10 @@ the former C.E.O. of Procter & Gamble
 India, whose latest book is "India Grows 
 at Night: A Liberal Case for a Strong 
 State." "The aspirational India has no one 
-to vote for, because no one is talking the 
+[[To]] vote for, because no one is talking the 
 language of public goods. Why should it 
-take us 15 years to get justice in the 
-courts or 12 years to build a road? The 
+take us 15 years [[To]] get justice in the 
+courts or 12 years [[To]] build a road? The 
 gap between [youth] aspirations and 
 government performance is huge. My 
 thesis is that India has risen despite the 
@@ -751,7 +751,7 @@ state. It is a story of public failure and
 private success." 
 That is what Das means by India grows at 
 night, when government sleeps. "But 
-India must learn to grow during the day," 
+India must learn [[To]] grow during the day," 
 he said. "If India fixes its governance 
 before China fixes its politics that is who 
 will win. ... You need a strong state and a 
@@ -767,18 +767,18 @@ Foreign Policy
 Don't be too sure there  
 won't be another U.S.  
 war in the Middle East 
-Richard L. Russell 
+Richard [[L]]. Russell 
 February 5, 2013 -- Shortly before he left 
 office in Feb. 2011, Defense Secretary 
-Robert Gates told West Point cadets that 
+[[Robert]] Gates told West Point cadets that 
 "in my opinion, any future defense 
-secretary who advised the president to 
+secretary who advised the president [[To]] 
 again send a big American land army into 
 Asia or into the Middle East or Africa 
 should 'have his head examined,' as 
 General MacArthur so delicately put it." 
 The remark no doubt reflected Sec. 
-Gates's fatigue and frustration from the 
+Gates's fatigue and frustration [[From]] the 
 enormous intellectual and emotional 
 burdens associated with overseeing the 
 wars in Iraq and Afghanistan. 
@@ -788,20 +788,20 @@ acknowledged that "never say never" is a
 wise rule of thumb in planning for 
 military contingencies, especially in the 
 region that makes up Central Command's 
-area-of-responsibility. Few, for example, 
+area[[-]]of[[-]]responsibility. Few, for example, 
 predicted the 1979 Soviet invasion of 
 Afghanistan. Gates himself -- who was a 
 senior CIA official during the covert war 
 supporting the Afghan resistance -- surely 
 did not anticipate then that the United 
 HOUSE OVERSIGHT 029801 
-States would have to return to 
-Afghanistan two decades later to oust a 
+States would have [[To]] return [[To]] 
+Afghanistan two decades later [[To]] oust a 
 Taliban regime that was harboring 
 terrorists. Before 1990, moreover, no one 
 predicted that Iraq, having just ended a 
-bitter eight-year war with Iran, would 
-swing its battered forces south to invade 
+bitter eight[[-]]year war with Iran, would 
+swing its battered forces south [[To]] invade 
 Kuwait. 
 So if it's conventional wisdom that the 
 United States will not, or should not, 
@@ -810,20 +810,20 @@ South Asia after it draws down forces in
 Iraq and Afghanistan, it's also likely dead 
 wrong. What is true, however, is that 
 political and military trajectories in the 
-Middle East and South Asia are likely to 
+Middle East and South Asia are likely [[To]] 
 increasingly challenge U.S. contingency 
 access in the coming decade. The ability 
-for the United States to surge large-scale 
+for the United States [[To]] surge large[[-]]scale 
 forces into the region, as it did in the 
 1990 and 2003 wars against Iraq, will 
 grow increasingly circumscribed. The 
-United States will have to adapt to this 
+United States will have [[To]] adapt [[To]] this 
 new strategic landscape by developing 
-more nimble, highly-mobile, stealthy, and 
+more nimble, highly[[-]]mobile, stealthy, and 
 networked forces, and by abandoning the 
 traditional practice of slowly and steadily 
 building up conventional forces at 
-regional logistic hubs prior to launching 
+regional logistic hubs prior [[To]] launching 
 war. 
 * * * 
 Perhaps the most significant factor that 
@@ -831,28 +831,28 @@ portends against further intervention in
 HOUSE OVERSIGHT 029802 
 the Middle East and South Asia is 
 increased political resistance -- and 
-outright opposition -- from the countries 
-in the region. That resistance is likely to 
-come from the new regimes emerging 
-from the Arab uprisings, as well as a 
+outright opposition -- [[From]] the countries 
+in the region. That resistance is likely [[To]] 
+come [[From]] the new regimes emerging 
+[[From]] the Arab uprisings, as well as a 
 number of Gulf monarchies. 
 Indeed, the political trends in the region 
-are unlikely to conform to the rosy 
+are unlikely [[To]] conform [[To]] the rosy 
 predictions of democratic peace theorists, 
 whose musings have implicitly informed 
 the security policies of both Republican 
 and Democratic administrations for 
 decades. Old authoritarian regimes seem 
-to be passing the way of the dodo bird, 
+[[To]] be passing the way of the dodo bird, 
 but the new regimes taking shape are 
 heavily influenced by militant Islamic 
 ideology that will make them less likely 
-to engage in security or military 
+[[To]] engage in security or military 
 cooperation with the United States. 
 Democracy optimists argue that these 
 ideological regimes, once entrenched in 
-power, will have to moderate their zeal in 
-order to govern. Pragmatism will 
+power, will have [[To]] moderate their zeal in 
+order [[To]] govern. Pragmatism will 
 ultimately trump ideology. That line of 
 reasoning, however, is based on the 
 assumption that the policy decisions of 

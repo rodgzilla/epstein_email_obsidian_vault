@@ -6,4 +6,4 @@ date: "2017-07-07 12:05:21"
 ---
 
 FYI 
-Begin forwarded message:
+Begin [[Forwarded Message]]:

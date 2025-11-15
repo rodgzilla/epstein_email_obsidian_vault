@@ -5,6 +5,6 @@ receiver: "[[Weingarten; Reid]]"
 date: "2017-11-01 14:14:00"
 ---
 
-Notice the date of the email 
-On Wed, Nov 1, 2017 at 5:05 PM Weingarten, Reid wrote: 
+Notice the [[Date]] of the email 
+On Wed, Nov [[1]], 2017 at 5:05 PM [[Weingarten]], [[Reid]] [[Wrote]]: 
 Just landed in san fran...at the airport...let's talk when_____________________________I get settled...

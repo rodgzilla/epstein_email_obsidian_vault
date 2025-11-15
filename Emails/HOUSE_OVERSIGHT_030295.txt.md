@@ -5,9 +5,9 @@ receiver: "[[Subject]]"
 date: 
 ---
 
-G Maxwell 
-1/11/2015 1:25:56 PM 
-J Jep [jeevacation@gmail.com] 
+[[G Maxwell]] 
+[[1]]/11/2015 [[1]]:25:56 PM 
+[[J]] Jep [[[jeevacation@gmail.com]]] 
 Fw: 
 THE TERRAMAR PROJECT 
 FACEBOOK 

@@ -5,4 +5,4 @@ receiver: "[[Joseph Evangelisti]]"
 date: "2010-01-28 04:56:55"
 ---
 
-Daley and frankel are saying that I need to go on TV (CNBC) to defend our hedge funds. Thoughts?
+Daley and frankel are saying that [[I]] need [[To]] go on TV (CNBC) [[To]] defend our hedge funds. Thoughts?

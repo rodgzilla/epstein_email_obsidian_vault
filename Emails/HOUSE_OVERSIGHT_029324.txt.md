@@ -5,5 +5,5 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2014-03-14 14:24:48"
 ---
 
-Begin forwarded message: 
+Begin [[Forwarded Message]]: 
 Jojo Fontanilla

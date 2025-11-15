@@ -10,15 +10,15 @@ Henry Holt
 175 5th Ave. 
 New York, NY loom 
 Stephen Rubin 
-invites you to celebrate 
-MICHAEL WOLFF 
+invites you [[To]] celebrate 
+[[Michael]] WOLFF 
 upon the publication of 
 SIEGE 
 Trump Under Fire 
 RSVP: 
-June 3, 6-8PM 
+June 3, 6[[-]]8PM 
 15 West 67th Street 
-**Due to space, we cannot allow plus ones. 
+**Due [[To]] space, we cannot allow plus ones. 
 **This may be a duplicate invitation because we were worried the 
-original invitation went to your spam folder! 
+original invitation went [[To]] your spam folder! 
 HOUSE OVERSIGHT 033360

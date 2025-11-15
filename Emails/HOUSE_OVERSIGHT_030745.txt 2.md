@@ -5,9 +5,9 @@ receiver: "[[G Maxwell]]"
 date: "2015-01-10 09:18:00"
 ---
 
-yes„ 
-On Sat, Jan 10, 2015 at 10:15 AM, G Maxwell <GMaxlgellmax.com> wrote: 
-Can my lawyer talk to a lawyer? 
+[[Yes]]„ 
+On Sat, Jan 10, 2015 at 10:15 AM, [[G Maxwell]] <GMaxlgellmax.com> [[Wrote]]: 
+Can my lawyer talk [[To]] a lawyer? 
 HOUSE OVERSIGHT 030745 
 THE TERRAMAR PROJECT 
 FACEBOOK 

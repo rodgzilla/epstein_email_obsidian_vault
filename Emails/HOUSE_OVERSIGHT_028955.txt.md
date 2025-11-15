@@ -5,18 +5,18 @@ receiver: "[[jeevacation@gmail.com]]"
 date: "2015-12-07 19:01:10"
 ---
 
-Dear Jeffrey, 
+Dear [[Jeffrey]], 
 As you probably know, Woody Allen's legal team said that we couldn't use the film we shot of him: online, for 
 broadcast, anywhere. 
-It was a fantastic experience taping with him and so, even if I can't ever use the footage, I'm still grateful to you 
-for making the day possible. But of course I'd like to use the footage. I decided when--way back-- we got this 
-very negative answer back from his lawyers that I should just take my time about asking --since it would take 
-us 2 years to be ready to edit the footage anyway (The online course is chronological. When I taped Woody we 
-were still back in 1730. Now we've gotten to the 1920s) 
+It was a fantastic experience taping with him and so, even if [[I]] can't ever use the footage, [[I]]'m still grateful [[To]] you 
+for making the day possible. But of course [[I]]'d like [[To]] use the footage. [[I]] decided when--way back-- we got this 
+very negative answer back [[From]] his lawyers that [[I]] should just take my time about asking --since it would take 
+us 2 years [[To]] be ready [[To]] edit the footage anyway (The online course is chronological. When [[I]] taped Woody we 
+were still back in 1730. Now we've gotten [[To]] the 1920s) 
 Well, we've now arrived at the season when we'll be editing materials on William Carlos Williams for our 
 course on Modernism and, as we discussed on Saturday, on poetry and other arts, The Poetry of Art, Sport, 
 and Play 
-I would also, of course, love to make a tv episode out of the conversation, but the threshold question is whether 
+[[I]] would also, of course, love [[To]] make a tv episode out of the conversation, but the threshold question is whether 
 he'll let us use it for anything at all. In case it would matter, 
 Other performers who have already taped with me include 
 John Lithgow, 
@@ -31,7 +31,7 @@ Alfre Woodard
 Herbie Hancock 
 Tony Kushner 
 Natalia Zukerman 
-and those who have agreed to tape with me include 
+and those who have agreed [[To]] tape with me include 
 Sally Field 
 Lena Dunham 
 Yo Yo Ma 
@@ -42,7 +42,7 @@ times)
 HOUSE OVERSIGHT 028955 
 His is one of only two releases that we haven't gotten. What do you think of my chances? 
 Lisa 
-Elisa New 
+[[Elisa New]] 
 Powell M. Cabot Professor of American Literature 
 Harvard University 
 148 Barker Center 

@@ -5,4 +5,4 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2014-07-17 11:55:40"
 ---
 
-Reminder: Would you like me to set up a call for you with Ed Boyden?
+Reminder: Would you like me [[To]] set up a call for you with [[Ed]] Boyden?

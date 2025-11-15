@@ -5,6 +5,6 @@ receiver: "[[Landon Thomas]]"
 date: "2011-07-01 04:01:12"
 ---
 
-now that strauss kan girl will be shown to be a total liar, maybe your paper should jump on and show that 
+now that strauss kan girl will be shown [[To]] be a total liar, maybe your paper should jump on and show that 
 s allegations re andrew are the same„ she also accused numnerous people of having sex with her,, 
-dersh, ehud etc. not one newpaper had the balls to question her credibility
+dersh, ehud etc. not one newpaper had the balls [[To]] question her credibility

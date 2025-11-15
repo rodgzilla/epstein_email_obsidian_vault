@@ -7,56 +7,56 @@ date: "2013-03-25 19:47:22"
 
 just did a jee google and thought it looked very good... 
 Search Results 
-1. Jeffrey Epstein - Wikipedia, the free encyclopedia  
-en.wikipedia.org/wiki/Jeffrey Epstein 
-Jeffrey Edward Epstein (born January 20, 1953) is an American financier and science and education 
+[[1]]. [[Jeffrey]] [[Epstein]] - Wikipedia, the free encyclopedia  
+en.wikipedia.org/wiki/[[Jeffrey]] [[Epstein]] 
+[[Jeffrey]] Edward [[Epstein]] (born January 20, 1953) is an American financier and science and education 
 philanthropist. He is responsible for founding The Program ... 
 Life - Financial career - Science funding - Solicitation of prostitution 
-2. Jeffrey Epstein: International Moneyman of Mystery  
-nymag.com/nymetro/news/people/n 7912/ 
+2. [[Jeffrey]] [[Epstein]]: International Moneyman of Mystery  
+nymag.[[Com]]/nymetro/news/people/n 7912/ 
 He's pals with a passel of Nobel Prize—winning scientists, CEOs like Leslie Wexner of the Limited, socialite 
 Ghislaine Maxwell, even Donald Trump. But it wasn't ... 
-3. Billionaire Jeffrey Epstein: I'm a sex offender, not a predator ...  
+3. Billionaire [[Jeffrey]] [[Epstein]]: [[I]]'m a sex offender, not a predator ...  
 www.nypost.com/.../pery don shmear me GIYVOfJYoWleFsSTrQ...  
-Feb 25, 2011 — Billionaire pervert Jeffrey Epstein is back in New York City -- and making wisecracks about his 
-just-ended jail stint for having sex with an ... 
-4. JEFFREY EPSTEIN VI FOUNDATION: Home  
-wwwjeffreyepsteinfoundation.com/ 
-Jeffrey Epstein, Holds a Conference of Nobel Laureates to Define Gravity ... The conference was financed by 
-science philanthropist Jeffrey Epstein and his ... 
-5. Jeffrey Epstein  
+Feb 25, 2011 — Billionaire pervert [[Jeffrey]] [[Epstein]] is back in New York City -- and making wisecracks about his 
+just[[-]]ended jail stint for having sex with an ... 
+4. [[Jeffrey]] [[Epstein]] VI FOUNDATION: Home  
+wwwjeffreyepsteinfoundation.[[Com]]/ 
+[[Jeffrey]] [[Epstein]], Holds a Conference of Nobel Laureates [[To]] Define Gravity ... The conference was financed by 
+science philanthropist [[Jeffrey]] [[Epstein]] and his ... 
+5. [[Jeffrey]] [[Epstein]]  
 www.huffingtonpost.com/news/jeffrey-epstein 
-Disgraced billionaire money manager (and former Bill Clinton associate) Jeffrey Epstein is back in New York 
+Disgraced billionaire money manager (and former Bill Clinton associate) [[Jeffrey]] [[Epstein]] is back in New York 
 City after 13 months of jail time for soli. 
-6. Jeffrey Epstein Science  
-wwwjeffreyepsteinscience.com/ 
-An overview of Jeffrey Epstein Science and the Jeffrey Epstein VI Foundation, the universities and the 
+6. [[Jeffrey]] [[Epstein]] Science  
+wwwjeffreyepsteinscience.[[Com]]/ 
+An overview of [[Jeffrey]] [[Epstein]] Science and the [[Jeffrey]] [[Epstein]] VI Foundation, the universities and the 
 scientists that have received support. 
-7. The Jeffrey Epstein VI Foundation  
-wwwjeffreyepsteinnsvi.com/ 
-Recent articles on Jeffrey Epstein USVI philanthropy from New York and the USVI. 
-8. Jeff Epstein profiles I LinkedIn  
+7. The [[Jeffrey]] [[Epstein]] VI Foundation  
+wwwjeffreyepsteinnsvi.[[Com]]/ 
+Recent articles on [[Jeffrey]] [[Epstein]] USVI philanthropy [[From]] New York and the USVI. 
+8. Jeff [[Epstein]] profiles [[I]] LinkedIn  
 www.linkedin.com/pub/dir/Jeff/Epstein 
-View the profiles of professionals named Jeff Epstein on LinkedIn. There are 25 professionals named Jeff 
-Epstein, who use LinkedIn to exchange information, ... 
+View the profiles of professionals named Jeff [[Epstein]] on LinkedIn. There are 25 professionals named Jeff 
+[[Epstein]], who use LinkedIn [[To]] exchange information, ... 
 HOUSE OVERSIGHT 029336 
-9. Jeff N. Epstein, PhD  
+9. Jeff N. [[Epstein]], PhD  
 www.cincinnatichildrens.org/bio/e/jeff-epstein/ 
-Jeff N. Epstein, PhD, is the director of the Center for ADHD and a professor of pediatrics for the Division of 
+Jeff N. [[Epstein]], PhD, is the director of the Center for ADHD and a professor of pediatrics for the Division of 
 Behavioral Medicine and Clinical Psychology at ... 
-10. Katie Couric, Woody Allen: Jeffrey Epstein 's Society Friends Close ...  
+10. Katie Couric, Woody Allen: [[Jeffrey]] [[Epstein]] 's Society Friends Close ...  
 www.thedailybeast.com/.../bill-chnton-katie-couric-woody-allen-jeffr.. 
-Apr 1, 2011 — Despite the pedophile mogul's conviction for soliciting underage prostitution, his circle is 
+Apr [[1]], 2011 — Despite the pedophile mogul's conviction for soliciting underage prostitution, his circle is 
 standing by their man. Scientists whose research ... 
-Searches related to jeffrey epstein 
-jeffrey epstein scandal  
-jeffrey epstein net worth  
-jeffrey epstein disney  
-jeffrey epstein vanity fair  
-jeffrey epstein forbes  
-jeffrey epstein plastic surgeon  
-jeffrey epstein rhinoplasty 
-jeffrey epstein hair transplant  
+Searches related [[To]] [[Jeffrey]] [[Epstein]] 
+[[Jeffrey]] [[Epstein]] scandal  
+[[Jeffrey]] [[Epstein]] net worth  
+[[Jeffrey]] [[Epstein]] disney  
+[[Jeffrey]] [[Epstein]] vanity fair  
+[[Jeffrey]] [[Epstein]] forbes  
+[[Jeffrey]] [[Epstein]] plastic surgeon  
+[[Jeffrey]] [[Epstein]] rhinoplasty 
+[[Jeffrey]] [[Epstein]] hair transplant  
 • 
 • 
 • 
@@ -70,9 +70,9 @@ HOUSE OVERSIGHT 029337
 • 
 • 
 More images  
-Jeffrey Epstein 
+[[Jeffrey]] [[Epstein]] 
 Financier 
-Jeffrey Edward Epstein is an American financier and science and education philanthropist. He is responsible for 
+[[Jeffrey]] Edward [[Epstein]] is an American financier and science and education philanthropist. He is responsible for 
 founding The Program for Evolutionary Dynamics at Harvard University, the first of its ... Wikipedia 
 Born: January 20, 1953 (age 60), Brooklyn  
 People also search for 
@@ -81,7 +81,7 @@ Prince Andrew, Duke of Y...
 Ghislaine Maxwell 
 Les Wexner  
 11 
-Martin Nowak  
+Martin [[Nowak]]  
 HOUSE OVERSIGHT 029338 
 Feedback / More info 
 Sarah, Duchess of York 

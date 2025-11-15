@@ -6,17 +6,17 @@ date: "2016-10-07 17:40:40"
 ---
 
 women in a 2005 recording, saying, "When you're a star they let you do it" 
-Add nytdirect@nytimes.com to your address book. 
+Add [[nytdirect@nytimes.com]] [[To]] your address book. 
 October 07, 2016 
 Breaking News Alert 
-NYTimes.com » 
+NYTimes.[[Com]] » 
 BREAKING NEWS 
 Donald Trump brags in vulgar terms 
 about groping women in a 2005 
 recording, saying, When you're a 
 star they let you do it 
 Friday, October 7, 2016 5:28 PM EDT 
-Donald J. Trump was caught on tape bragging in vulgar terms about making sexual 
+Donald [[J]]. Trump was caught on tape bragging in vulgar terms about making sexual 
 HOUSE OVERSIGHT 031489 
 advances toward a married woman, and aggressively kissing and groping other 
 women. 
@@ -30,11 +30,11 @@ ADVERTISEMENT
 FOLLOW NYTimes 
 FACEBOOK 
 @NYTimes 
-Get more NYTimes.com newsletters » 
-Get unlimited access to NYTimes.com and our 
+Get more NYTimes.[[Com]] newsletters » 
+Get unlimited access [[To]] NYTimes.[[Com]] and our 
 NYTimes apps for just $0.99. Subscribe » 
 ABOUT THIS EMAIL 
-You received this message because you signed up for NYTimes.com's Breaking News Alerts newsletter. 
+You received this message because you signed up for NYTimes.[[Com]]'s Breaking News Alerts newsletter. 
 Unsubscribe Manage Subscriptions Change Your Email Privacy Policy Contact Advertise 
 Copyright 2015 The New York Times Company 620 Eighth Avenue New York, NY 10018 
 HOUSE OVERSIGHT 031490

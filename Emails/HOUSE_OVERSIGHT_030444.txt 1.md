@@ -6,4 +6,4 @@ date: "2018-05-05 13:43:02"
 ---
 
 Gates. 
-Begin forwarded message:
+Begin [[Forwarded Message]]:

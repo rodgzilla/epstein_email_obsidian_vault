@@ -5,12 +5,12 @@ receiver: "[[He Couldnt For A Few Months; Too Hot]]"
 date: "2010-11-03 14:40:00"
 ---
 
-He couldn't for a few months , too hot 
-Sorry for all the typos .Sent from my iPhone 
+He couldn't for a few months , [[Too Hot]] 
+Sorry for all the typos .[[Sent]] [[From]] my iPhone 
 On Nov 3, 2010, at 3:36 PM, 
-wrote: 
+[[Wrote]]: 
 > Hey Unc, 
-> Quick Question...do u think Larry Summers would come to Trinity to speak about Obama, the economy, the 
+> Quick Question...do u think [[Larry]] [[Summers]] would come [[To]] Trinity [[To]] speak about Obama, the economy, the 
 government in general, etc? 
-> Sent via BlackBerry from T- Mobile 
+> [[Sent]] [[Via]] BlackBerry [[From]] T- Mobile 
 HOUSE OVERSIGHT 030506

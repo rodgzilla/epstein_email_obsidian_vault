@@ -5,6 +5,6 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2011-04-06 21:31:19"
 ---
 
-just so you know.. you can read from bottom up.. you may be mad that I was blunt... haven't heard from you.. 
+just so you know.. you can read [[From]] bottom up.. you may be mad that [[I]] was blunt... haven't heard [[From]] you.. 
 hope all is well.. 
-Begin forwarded message:
+Begin [[Forwarded Message]]:

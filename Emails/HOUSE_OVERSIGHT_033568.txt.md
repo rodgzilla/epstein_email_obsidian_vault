@@ -5,4 +5,4 @@ receiver: "[[Paul Krassner]]"
 date: 
 ---
 
-Begin forwarded message:
+Begin [[Forwarded Message]]:

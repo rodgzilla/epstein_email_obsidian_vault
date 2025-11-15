@@ -5,6 +5,6 @@ receiver: "[[Weingarten; Reid]]"
 date: "2012-10-24 16:58:47"
 ---
 
-have one of your cronys ask to see the mortgage to mara lago cash from electricinas union„ ( his driver MAtt 
-was the bag man, later made an exec at the public co. ) and the 30 milllion dollar loan from the casino to donald 
+have one of your cronys ask [[To]] see the mortgage [[To]] mara lago cash [[From]] electricinas union„ ( his driver MAtt 
+was the bag man, later made an exec at the public co. ) and the 30 milllion dollar loan [[From]] the casino [[To]] donald 
 trump. backdated,

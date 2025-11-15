@@ -6,6 +6,6 @@ date: "2018-04-11 02:18:04"
 ---
 
 My God 
-that Jewish Nazi is joining to join our Narcissistic Psychopath for dinner—how appropriate 
+that Jewish Nazi is joining [[To]] join our Narcissistic Psychopath for dinner—how appropriate 
 https://www.cnn.com/20 1 8/04/1 0/politics/donald-trump-alan-dershowitz/index.html  
 HOUSE OVERSIGHT 029498

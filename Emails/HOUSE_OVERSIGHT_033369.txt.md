@@ -6,23 +6,23 @@ date: "2019-06-13 14:49:13"
 ---
 
 Catching up on some reading and finally read trumps 100 pages of nonsense. Some interesting findings: 
-1) foundation is inactive 
+[[1]]) foundation is inactive 
 2) ironic that starett city largest federal subsidized housing project which trump had 4 percent interest was 
 finally sold while he is president. 
 https://www.google.com/amp/s/www.bizjournals.com/newyork/news/2018/05/09/starrett-city-sells-giving-
-trump-a-profit.amp.html  
-3) other than doral and post office hotel no substantial income from any of his enties that he showed.. 
-4) 30 pages of stock purchases and sales all 5-15k. 
+trump[[-]]a[[-]]profit.amp.html  
+3) other than doral and post office hotel no substantial income [[From]] any of his enties that he showed.. 
+4) 30 pages of stock purchases and sales all 5[[-]]15k. 
 5) cash in his name 25mm or less 
-6) still has money in revocable trust from his father at jpm 1-5mm 
-7) claims to have as much as 125mm in trump revocable trust at cap one, professional bank, signature bank and 
+6) still has money in revocable trust [[From]] his father at jpm [[1]]-5mm 
+7) claims [[To]] have as much as 125mm in trump revocable trust at cap one, professional bank, signature bank and 
 bank United but can be as little as 40mm it mins were real numbers. 
 Didn't he once say he say he had billions of liquidity.. 
-8) valued planes from 56 to over 86mm. Down from 300mm on earlier disclosures.. 
+8) valued planes [[From]] 56 [[To]] over 86mm. Down [[From]] 300mm on earlier disclosures.. 
 9) Bank used for last mortgage on ocean drive purchase is a coral gables bank that is opening in boca as well. 
 https://www.cnbc.com/amp/2019/05/16/read-president-donald-trumps-financial-disclosure-report.html  
-https://myprobank.com/  
-Richard Kahn 
+https://myprobank.[[Com]]/  
+[[Richard Kahn]] 
 HBRK Associates Inc. 
 575 Lexington Avenue, 4th Floor 
 New York, NY 10022 

@@ -5,8 +5,8 @@ receiver: "[[Cc]]"
 date: 
 ---
 
-Sent from my iPhone 
-Please direct all scheduling inquiries to my office at: 
+[[Sent]] [[From]] my iPhone 
+Please direct all scheduling inquiries [[To]] my office at: 
 Follow me on twitter glhsummers 
 www.larrysummers.com 
 HOUSE OVERSIGHT 032769

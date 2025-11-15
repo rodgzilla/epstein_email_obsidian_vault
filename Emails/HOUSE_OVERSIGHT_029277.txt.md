@@ -5,5 +5,5 @@ receiver: "[[Lhs I I]]"
 date: "2016-10-02 21:00:42"
 ---
 
-On Sunday, 2 October 2016, LHS < > wrote: 
+On Sunday, 2 October 2016, [[Lhs]] < > [[Wrote]]: 
 What number r u at?

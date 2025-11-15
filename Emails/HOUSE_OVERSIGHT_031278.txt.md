@@ -5,7 +5,7 @@ receiver: "[[Darren Indyke]]"
 date: "2016-08-16 22:42:56"
 ---
 
-Darren: 
-Privileged - Redacted I 
+[[Darren]]: 
+Privileged - Redacted [[I]] 
 Best, 
-Charles
+[[Charles]]

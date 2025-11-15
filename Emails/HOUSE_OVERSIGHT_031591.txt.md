@@ -5,5 +5,5 @@ receiver: "[[Christina Galbraith]]"
 date: "2015-01-06 01:15:19"
 ---
 
-thanks, what is david doing? 
-On Mon, Jan 5, 2015 at 6:12 PM, Christina Galbraith <
+thanks, what is [[David]] doing? 
+On Mon, [[Jan 5]], 2015 at 6:12 PM, [[Christina Galbraith]] <

@@ -5,16 +5,16 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2014-02-08 01:32:58"
 ---
 
-Richard Kahn 
-Understand the two negatives are still present. We are still on track per our last call of 60 days from 1/10 if we 
-can get the placement out next week Christina is preparing for us and results continue to respond as they have 
+[[Richard Kahn]] 
+Understand the two negatives are still present. We are still on track per our last call of 60 days [[From]] [[1]]/10 if we 
+can get the placement out next week Christina is preparing for us and results continue [[To]] respond as they have 
 been. 
-It takes 30 days for Google to respond in most cases and we ramped up 28 days ago with boosting alternate 
+It takes 30 days for Google [[To]] respond in most cases and we ramped up 28 days ago with boosting alternate 
 URLs per our call 
-We are working very hard to make this happen and should have Christina set up to support us with columns on 
+We are working very hard [[To]] make this happen and should have Christina set up [[To]] support us with columns on 
 a few top sites at no cost moving forward 
-I am available for a call now or this weekend to review. 
-On Feb 7, 2014, at 6:56 PM, Jeffrey Epstein <jeevacation@gmail.com> wrote: 
+[[I]] am available for a call now or this weekend [[To]] review. 
+On Feb 7, 2014, at 6:56 PM, [[Jeffrey]] [[Epstein]] <jeevacation@gmail.com> wrote: 
 About 4,880,000 results (0.33 seconds) different computer, not good 
 Search Results 
 1. Jeffrey Epstein - Wikipedia, the free encyclopedia  
@@ -78,8 +78,8 @@ your convenience today or over weekend.
 Sincerely, 
 Tyler Shears 
 HOUSE OVERSIGHT 029546 
-On Fri, Feb 7, 2014 at 10:47 AM, Christina Galbraith < 1> wrote: 
+On Fri, Feb 7, 2014 at 10:47 AM, Christina Galbraith < 1> [[Wrote]]: 
 Hi Tyler, 
-Ok thanks so much for the review. I've cc'd Jeffrey. I'll be in touch this afternoon. 
-Christina Galbraith 
-Begin forwarded message:
+Ok thanks so much for the review. [[I]]'ve [[Cc]]'d [[Jeffrey]]. [[I]]'ll be in touch this afternoon. 
+[[Christina Galbraith]] 
+Begin [[Forwarded Message]]:

@@ -5,4 +5,4 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2016-05-21 14:27:24"
 ---
 
-I am about to go on stage. The first part of my presentation is about Trump.
+[[I]] am about [[To]] go on stage. The first part of my presentation is about Trump.

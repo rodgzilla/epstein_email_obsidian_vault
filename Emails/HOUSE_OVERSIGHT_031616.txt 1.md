@@ -6,4 +6,4 @@ date: "2016-04-28 12:20:00"
 ---
 
 Reporter said 1994 claim fed ct California 
-Will go to press in several hrs
+Will go [[To]] press in several hrs

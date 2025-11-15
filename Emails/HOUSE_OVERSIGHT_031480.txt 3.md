@@ -5,15 +5,15 @@ receiver: "[[Will Bohlen imm]]"
 date: "2016-08-05 13:28:00"
 ---
 
-thryn <==>; Miller, Michael 
->; Y. Alp Aslandogan 
-; Remzi Kulen < 
-<MI; David Mann 
+thryn <==>; [[Miller]], [[Michael]] 
+>; [[Y. Alp Aslandogan]] 
+; [[Remzi]] Kulen < 
+<[[Mi]]; [[David]] Mann 
 k Drake, William < 
 USA TODAY and Al Arabiya as well: 
 http ://www.us ato day. c om/story/news/world/2016/08/05/cleric -extradition-turkey-coup/88288220/ 
-http ://english. alarabiya.net/en/News/middle-east/2016/08/05/US -evaluating-new-Turkish-do cuments-on-Gulen.html 
-Michael A. Keough 
+http ://english. alarabiya.net/en/News/middle[[-]]east/2016/08/05/US -evaluating[[-]]new[[-]]Turkish[[-]]do cuments[[-]]on[[-]]Gulen.html 
+[[Michael]] A. [[Keough]] 
 Associate 
 lirect 
 Steptoe 

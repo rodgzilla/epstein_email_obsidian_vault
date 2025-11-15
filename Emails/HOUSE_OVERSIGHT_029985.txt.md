@@ -6,4 +6,4 @@ date:
 ---
 
 Jeff: see top story. Below 
-Sent via BlackBerry by AT&T
+[[Sent]] [[Via]] BlackBerry by AT&T

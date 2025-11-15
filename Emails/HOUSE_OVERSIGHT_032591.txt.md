@@ -5,4 +5,4 @@ receiver: "[[Subject]]"
 date: 
 ---
 
-very well .. plz when you have a minute send me the date and the time .. i know the house by now Ii
+very well .. plz when you have a minute send me the [[Date]] and the time .. [[I]] know the house by now [[Ii]]

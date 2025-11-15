@@ -9,33 +9,33 @@ View this email in your browser here.
 Chart of the Day - Economy and Society 
 June 27, 2016 
 Dear Barry, 
-When it comes to describing Donald Trump's private jet, the word 
+When it comes [[To]] describing Donald Trump's private jet, the word 
 "impressive" would be an understatement. The presumptive Republican Party 
-nominee bought the Boeing 757-200 from Microsoft co-founder Paul Allen 
+nominee bought the Boeing 757[[-]]200 [[From]] Microsoft co[[-]]founder Paul Allen 
 and he spared no expense kitting it out. Dubbed "Trump Force One," the 
-luxurious jet is equipped with a shower, gold-plated seatbelt buckles and a 
-52-inch flatscreen with a library of 1,000 movies. Built in 1991, the 757 is 
-estimated to have cost approximately $100 million. If Trump reaches the 
-White House in November, he'll have to exchange his personal jet for the 
-presidential fleet, two highly modified Boeing 747-200Bs. The aircraft used by 
+luxurious jet is equipped with a shower, gold[[-]]plated seatbelt buckles and a 
+52[[-]]inch flatscreen with a library of [[1]],000 movies. Built in 1991, the 757 is 
+estimated [[To]] have cost approximately $100 million. If Trump reaches the 
+White House in November, he'll have [[To]] exchange his personal jet for the 
+presidential fleet, two highly modified Boeing 747[[-]]200Bs. The aircraft used by 
 the president were built in 1986 and operate with the Air Force One callsign 
 when the president is onboard. Will switching jets prove one of Trump's few 
 regrets if he becomes president? 
-Even though it cannot boast gold-plated accessories, Air Force One is a 
-larger aircraft, seating 70 passengers in comfort compared to Trump Force 
+Even though it cannot boast gold[[-]]plated accessories, Air Force One is a 
+larger aircraft, seating 70 passengers in comfort compared [[To]] Trump Force 
 ..11141, 
 HOUSE OVERSIGHT 033301 
 One's 43. The presidential jet is also slightly faster with a range of about 
-6,800 nautical miles compared to 4,100 for a 757. A VC-25A can also be 
-refuelled in mid-air by a tanker, extending its range even further. 
+6,800 nautical miles compared [[To]] 4,100 for a 757. A VC[[-]]25A can also be 
+refuelled in mid[[-]]air by a tanker, extending its range even further. 
 The two presidential planes cost $325 million each and their cost of operation 
-comes to $179,750 per hour. The hourly cost of operation for a standard 757 
+comes [[To]] $179,750 per hour. The hourly cost of operation for a standard 757 
 is just over $8,000 by comparison, though the taxpayer will pick up the higher 
 bill for Air Force One. All that bling certainly inflated the cost of Trump Force 
 One but Air Force One is expensive because it's packed with equipment and 
-facilities to keep the president and his or her entourage safe at all times. 
+facilities [[To]] keep the president and his or her entourage safe at all times. 
 There is a hospital onboard, electronic countermeasures and heavy shielding 
-to afford protection in the event of an electromagnetic pulse during a nuclear 
+[[To]] afford protection in the event of an electromagnetic pulse during a nuclear 
 attack. All in all, if Trump does end up travelling regularly on Air Force One, 
 he probably won't regret trading in his gold seatbelt buckle for the presidential 
 suite on one of the most sophisticated airliners in the world. 
@@ -43,14 +43,14 @@ https://www.statista.com/chart/5110/trump-force-one-vs-air-force-one/
 +++ Advertisement ++ 
 HOUSE OVERSIGHT 033302 
 6 Best Practices for Creating Effective Dashboards 
-If you're not using interactive dashboards to make fast data-driven decisions, 
-you're missing out! In this whitepaper you'll discover how to build those 
+If you're not using interactive dashboards [[To]] make fast data[[-]]driven decisions, 
+you're missing out! In this whitepaper you'll discover how [[To]] build those 
 dashboards that will transform your data into relevant, actionable, insights. 
 Download now. 
-Our charts are intended for public use in online articles and social media. Please feel free to share 
-them. If you do, we kindly ask you to refer to Statista using the URL given below the respective 
+Our charts are intended for public use in online articles and social media. Please feel free [[To]] share 
+them. If you do, we kindly ask you [[To]] refer [[To]] Statista using the URL given below the respective 
 chart. 
-Please feel free to contact me with any questions you may have. For data requests, please use 
+Please feel free [[To]] contact me with any questions you may have. For data requests, please use 
 the search function on the Statista website. 
 Best regards, 
 Niall McCarthy 
@@ -59,7 +59,7 @@ infographic service and advertising in this newsletter please contact:
 Jan Frederik Ahrens 
 Digital & Content Marketing 
 Facebook • Twitter • Google+ 
-This e-mail was sent to__________________________________________________ 
-If you no longer wish to receive this newsletter, please unsubscribe here 
+This e[[-]]mail was [[Sent]] to__________________________________________________ 
+If you no longer wish [[To]] receive this newsletter, please unsubscribe here 
 Statista, Inc., 55 Broad Street, 30th Floor, New York, NY 10004 / Privacy Policy 
 HOUSE OVERSIGHT 033303

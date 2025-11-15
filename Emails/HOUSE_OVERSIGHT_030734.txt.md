@@ -10,5 +10,5 @@ On Jul 21, 2018, at 7:51 AM, jeffrey E. <jeevacation@gmail.com> wrote:
 Daily beast well done 
 On Sat, Jul 21, 2018 at 1:39 PM Steve Bannon - 
 So epic---world coming our way 
-Sent via BlackBerry by AT&T 
-> wrote:
+[[Sent]] [[Via]] BlackBerry by AT&T 
+> [[Wrote]]:

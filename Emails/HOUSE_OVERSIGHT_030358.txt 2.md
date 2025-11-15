@@ -5,7 +5,7 @@ receiver: "[[Staley; Jes Barclays ldn]]"
 date: 
 ---
 
-As I retire for the night, I'm reminded of a poem my father was awfully fond of. It seems 
+As [[I]] retire for the night, [[I]]'m reminded of a poem my father was awfully fond of. It seems 
 very apt. 
 Good night, Jes. 
 Worry not of tomorrow's end 

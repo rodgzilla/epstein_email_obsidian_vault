@@ -6,8 +6,8 @@ date: "2018-03-21 13:54:31"
 ---
 
 You and your boy Donnie can make a remake of the movie Get Hard. 
-Sent via tin can and string. 
-On Mar 21, 2018, at 09:37, jeffrey E. <jeevacation@gmail.com> wrote: 
-and i thought- I had tsuris 
-On Wed, Mar 21, 2018 at 4:32 AM, Mark L. Epstein wrote: 
+[[Sent]] [[Via]] tin can and string. 
+On Mar 21, 2018, at 09:37, [[Jeffrey]] E. <jeevacation@gmail.com> [[Wrote]]: 
+and [[I]] thought- [[I]] had tsuris 
+On Wed, Mar 21, 2018 at 4:32 AM, [[Mark L. Epstein]] [[Wrote]]: 
 Ask him if Putin has the photos of Trump blowing Bubba?

@@ -5,4 +5,4 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2018-02-15 22:41:00"
 ---
 
-So the florida shooter always wore a trump hat and was looking to kill Jews and women
+So the florida shooter always wore a trump hat and was looking [[To]] kill Jews and women

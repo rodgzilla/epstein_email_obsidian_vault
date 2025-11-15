@@ -6,5 +6,5 @@ date:
 ---
 
 Great 
-On Fri, Sep 8, 2017 at 9:09 AM wrote: 
-things look very bad in the gulf.. my feeling trump do not want to end it
+On Fri, Sep 8, 2017 at 9:09 AM [[Wrote]]: 
+things look very bad in the gulf.. my feeling trump do not want [[To]] end it

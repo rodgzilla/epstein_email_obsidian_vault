@@ -8,28 +8,28 @@ date: "2011-11-23 17:29:30"
 The teacher said, "Let's begin by reviewing some American History. 
 Who said 'Give me Liberty, or give me Death'?" 
 She saw a sea of blank faces, except for Little Hodiaki a bright foreign 
-exchange student from Japan, who had his hand up:'Patrick Henry, 1775' 
+exchange student [[From]] Japan, who had his hand up:'Patrick Henry, 1775' 
 she said..'Very good!' 
 Who said, 'Government of the People, by the People, for the People, shall 
-not perish from the Earth?' 
-Again, no response except from Little Hodiaki, 'Abraham Lincoln, 1863'.. 
+not perish [[From]] the Earth?' 
+Again, no response except [[From]] Little Hodiaki, 'Abraham Lincoln, 1863'.. 
 'Excellent!', said the teacher continuing, 'let's try one a bit More difficult.: 
 Who said, 'Ask not what your country can do for you, but what you can do for your country?' 
 Once again, Hodiaki's was the only hand in the air and he said;'John F. Kennedy, 1961'. 
-The teacher snapped at the class, 'Class, you should be ashamed of yourselves, Little Hodiaki isn't from this 
+The teacher snapped at the class, 'Class, you should be ashamed of yourselves, Little Hodiaki isn't [[From]] this 
 country and he knows more about our history than you do.' 
 She heard a loud whisper: fuck the Japs,' 
-'Who said that? I want to know right now!' she angrily demanded. 
+'Who said that? [[I]] want [[To]] know right now!' she angrily demanded. 
 Little Hodiaki put his hand up, 'General MacArthur, 1945.' 
-At that point, a student in the back said, 'I'm gonna puke.' 
+At that point, a student in the back said, '[[I]]'m gonna puke.' 
 The teacher glares around and asks, 'All right!!! Now who said that!?' 
 HOUSE OVERSIGHT 030823 
-Again, Little Hodiaki says, 'George Bush to the Japanese Prime Minister,1991.' 
+Again, Little Hodiaki says, 'George Bush [[To]] the Japanese Prime Minister,1991.' 
 Now furious, another student yells, 'Oh yeah? Suck this!' 
-Little Hodiaki jumps out of his chair waving his hand and shouts to the teacher, 
-'Bill Clinton, to Monica Lewinsky, 1997!' 
-Now with almost mob hysteria someone said, 'You little shit. If you say anything else, I'll kill you.' 
-Little Hodiaki frantically yells at the top of his voice,'Michael Jackson to the child witnesses testifying against 
+Little Hodiaki jumps out of his chair waving his hand and shouts [[To]] the teacher, 
+'Bill Clinton, [[To]] Monica Lewinsky, 1997!' 
+Now with almost mob hysteria someone said, 'You little shit. If you say anything else, [[I]]'ll kill you.' 
+Little Hodiaki frantically yells at the top of his voice,'[[Michael]] Jackson [[To]] the child witnesses testifying against 
 him, 2004.' 
 The teacher fainted. 
 As the class gathered around the teacher on the floor, someone said,'Oh shit, We're screwed!' 

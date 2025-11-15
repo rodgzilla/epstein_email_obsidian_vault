@@ -5,5 +5,5 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2018-12-22 12:52:50"
 ---
 
-Of course. Who knows whether I'm serious? Not at this moment me. 
+Of course. Who knows whether [[I]]'m serious? Not at this moment me. 
 Will trump crack into insanity?

@@ -5,10 +5,10 @@ receiver: "[[jeeyacation@gmail.com]]"
 date: "2015-03-24 20:00:21"
 ---
 
-he appears to be looking for a response from me as i never replied to his email offering a 10,000 discount 
+he appears [[To]] be looking for a response [[From]] me as [[I]] never replied [[To]] his email offering a 10,000 discount 
 please advise 
-Richard Kahn 
+[[Richard Kahn]] 
 HBRK Associates Inc. 
 575 Lexington Avenue 4th Floor 
 New York, NY 10022 
-Begin forwarded message:
+Begin [[Forwarded Message]]:

@@ -7,6 +7,6 @@ date: "2019-03-16 21:38:20"
 
 Figuring out how. 
 Could say she has now used up 80 percent of what she was owed through my changes in plan. 
-Or say xi changes meeting w trump. 
-I think she is tired of this alas. 
-Sustaining w secrecy hard.
+Or say xi changes meeting [[W]] trump. 
+[[I]] think she is tired of this alas. 
+Sustaining [[W]] secrecy hard.

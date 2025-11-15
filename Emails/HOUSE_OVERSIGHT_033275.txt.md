@@ -7,7 +7,7 @@ date: "2018-02-27 18:50:45"
 
 https://www.texastribune.org/2018/02/27/trump-taps-texan-brad-parscale-his-2020-re-election-campaign-
 manager/ 
-Richard Kahn 
+[[Richard Kahn]] 
 HBRK Associates Inc. 
 575 Lexington Avenue 4th Floor 
 New York, NY 10022 

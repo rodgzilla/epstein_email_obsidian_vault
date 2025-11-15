@@ -6,5 +6,5 @@ date: "2009-10-09 12:32:00"
 ---
 
 Privileged - Redacted 
-Sent from my 'Phone 
-Begin forwarded message:
+[[Sent]] [[From]] my 'Phone 
+Begin [[Forwarded Message]]:
