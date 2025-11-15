@@ -179,11 +179,15 @@
       "daily-notes:Open today's daily note": false,
       "templates:Insert template": false,
       "command-palette:Open command palette": false,
-      "bases:Create new base": false
+      "bases:Create new base": false,
+      "obsidian-importer:Open Importer": false,
+      "obisidian-note-linker:Note Linker": false
     }
   },
   "active": "1d0d6527556051d9",
   "lastOpenFiles": [
+    "src/email_parser.py",
+    "src",
     "Individual base.base",
     "README.md",
     "imgs/graph.png",
