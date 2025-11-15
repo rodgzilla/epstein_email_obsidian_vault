@@ -3,9 +3,9 @@
 
 The set of released emails of Jeffrey Epstein processed into an Obsidian Vault using the Obsidian Importer plugin an Claude Code.
 
-![Graph view](graph.png)
+![Graph view](imgs/graph.png)
 
-![Base view using a groupby operation](base_groupby.png)
+![Base view using a groupby operation](imgs/base_groupby.png)
 
-![Note view](note.png)
+![Note view](imgs/note.png)
 
