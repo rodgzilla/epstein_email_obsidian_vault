@@ -1,0 +1,18 @@
+---
+filename: "HOUSE_OVERSIGHT_028780.txt"
+sender: "[[Sent]]"
+receiver: "[[Subject]]"
+date: 
+---
+
+Attachments: 
+Dangene and Jennie Enterpris 
+2/19/2016 2:23:22 AM 
+Jeffrey Epstein [jeeyacation@gmail.com] 
+TRUMP! POPE SCORECARD 
+EWLarge2.jpg 
+TRUMP 1 POPE 
+CORE: Jennie Enterprise I 
+@dandjenterprise I Founder & Chairman I 66 East 55th Street New York NY 10022 I Main: 
+www.coreaccess.net  
+HOUSE OVERSIGHT 028780

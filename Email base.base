@@ -1,0 +1,15 @@
+filters:
+  and:
+    - file.folder == "Emails"
+views:
+  - type: table
+    name: Table
+    order:
+      - file.name
+      - filename
+      - sender
+      - receiver
+      - date
+    columnSize:
+      file.name: 461
+      note.receiver: 406

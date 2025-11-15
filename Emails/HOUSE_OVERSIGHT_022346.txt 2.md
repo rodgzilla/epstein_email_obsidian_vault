@@ -1,0 +1,34 @@
+---
+filename: "HOUSE_OVERSIGHT_022346.txt"
+sender: "[[Nay Gupta]]"
+receiver: "[[jeevacation@gmail.com]]"
+date: "2014-03-12 21:35:00"
+---
+
+Jeffrey 
+Vinit Sahni/db/IIIIIIIIIIII 
+Just got off the phone with Vinit. 
+DB stopped marketmaking OTC oil options - for short dated Pd go for exch traded - better liquidity and lower transaction costs in and 
+out. 
+My central scenario - Kerry Lavrov meeting Friday will be a bust and the Crimea referendum this weekend will result in "yes" given 
+the 59pct ethic Russian makeup. Sunday/ Monday sanction rhetoric from ranging from g8 expulsion to Iran-style bank embargo is 
+raised a notch. Russia follows with more threats of counter-sanctions. My sense is the Obama 5m of 696m SPR release is to show 
+Merkel and co he will step in. He needs to because there are 8 small European and Baltic countries that rec 70%+ of their gas from 
+Russia. Germany gets 30%. 
+Cross asset correlations outside of the US are increasing past few days - eg copper and the Turkish lira hourly charts are on top of each 
+other past 4 days. I'm worried there is a 30-40pct(?) chance of a hard risk off move in markets in first half of next week - more focused 
+on European equities, copper, EM FX (Turkey, ZAR, Ruble etc) than SPX. In that scenario oil is way up. 
+Exchange WTI calls - there are 2 options (as of 3pm est): 
+5day expiry 17march 2014 underlying clj4 97.92 
+and 
+35d expiry 16apri12014 underlying clk4 97.59 
+** The 5 day options are a bit short - one possibility is sell a 3usd out of the money put (95.5 strike) for 20cents and buy a 2usd OTM 
+100 call for 25. Net pay Scents. But 5d is a bit short for me. 
+**For 35d expiry You could look at selling 91.50 (6usd OTM put) for 56cents and buying 103c (5.5usd OTM) for 58cents or the 102c 
+(4.5usd OTM) for 76cents. 
+CL1 <comdty> OMON on Bloomberg has live strikes and bid/ask. 
+HOUSE OVERSIGHT 022346 
+If 5d is too short and 35d is too long / not enough gamma, Tazia may be able to source liquidity from the street. Am Cc'ing her for any 
+live pricing or additional comment 
+Best 
+Nay

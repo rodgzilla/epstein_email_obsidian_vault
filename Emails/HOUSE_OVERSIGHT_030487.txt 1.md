@@ -1,0 +1,54 @@
+---
+filename: "HOUSE_OVERSIGHT_030487.txt"
+sender: "[[Power Peter Acomms]]"
+receiver: "[[]]"
+date: "2010-01-24 13:01:39"
+---
+
+DARLING WARNS US OVER WAR ON WALL STREET 
+HMI CITY Darling 
+Topic CITY <http://www.mediapoint.press.net/business/search.jsp?topic=CITY &newerThan=1> 
+Published 24 Jan 2010 - 12:22 
+By Holly Williams, Press Association City Staff 
+Page 1: 12:22 
+HOUSE OVERSIGHT 030487 
+Chancellor Alistair Darling has sent out a warning shot to America not to go it alone with bank sector reforms, it was reported today. 
+In an interview with The Sunday Times, Mr Darling cautioned that President Barack Obama's war on Wall Street announced last week 
+could harm international co-ordination. 
+He called for unity among the G20 nations and also said the moves to curb banks would not have prevented the fmancial crisis. 
+"If everyone does their own thing it will achieve absolutely nothing," said Mr Darling. 
+He added: "The banks are global - they are quite capable of organising themselves in such a way that if the regime is difficult in one 
+country, they will go to another one and that doesn't do anyone any good." 
+The US president sent shockwaves through the banking sector on both sides of the Atlantic with last week's announcement of proposals to 
+limit the activities of banks. 
+The plans include a ban on retail banks from using their own money in investments, instead of being limited to investing their customers' 
+funds, and restrictions on banks' abilities to make high-risk trades. 
+Mr Obama said he was ready for a "fight" with the sector over the reforms, which came in the middle of the US bank reporting season 
+revealing bumper profits at many major groups. 
+The Tories were quick to back Mr Obama and accused the UK Government of becoming internationally "isolated" over the banking 
+overhaul. 
+However, Mr Darling today stood firm on his opposition to plans that would effectively split retail and investment banks. 
+"You could end up dividing institutions and making them separate legal entities, but that isn't the point," he told The Sunday Times. 
+"The point is the connectivity between them in relation to their financial transactions." 
+He stressed that failed US investment bank Lehman Brothers did not have retail deposits, but was allowed to go to the wall with disastrous 
+consequences for the global financial system. 
+He said: "Equally the large-small thing doesn't run - Northern Rock was very small in global terms but systemically it was quite important 
+when it got into trouble." 
+The UK will continue working with the US on banking overhaul plans, but the Chancellor said he would ensure proposals did not 
+"disadvantage London relative to the rest of the world". 
+But the UK has so far gone out on a limb with its one-off 50% special tax on City bonuses over £25,000. 
+The move has already seen threats from banks to relocate affected staff abroad, while a number of foreign banks - including Credit Suisse 
+and reportedly Goldman Sachs - are capping or reducing UK staff pay. 
+US Treasury officials are understood to be arriving in London tomorrow to brief the Government on Mr Obama's radical plans. 
+And City minister Lord Myners is said to be gathering UK and international officials to discuss solutions to the "too big to fail" issue. 
+Sophie BengerlDigital Infrastructure Desk 1Department for Business, Innovation and Skills 
+• 
+1www.bis.gov.uk <http://www.bis.gov.uld  > 
+HOUSE OVERSIGHT 030488 
+The Department for Business, Innovation & Skills (BIS) is building a dynamic and competitive UK economy by creating the conditions 
+for business success; promoting innovation, enterprise and science; and giving everyone the skills and opportunities to succeed. To 
+achieve this we will foster world-class universities and promote an open global economy. BIS - investing in our future. 
+The original of this email was scanned for viruses by the Government Secure Intranet virus scanning service 
+supplied by Cable&Wireless in partnership with MessageLabs. (CCTM Certificate Number 2009/09/0052.) On 
+leaving the GSi this email was certified virus free. 
+Communications via the GSi may be automatically logged, monitored and/or recorded for legal purposes.

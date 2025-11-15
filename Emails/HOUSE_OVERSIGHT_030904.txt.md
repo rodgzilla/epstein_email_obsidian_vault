@@ -1,0 +1,19 @@
+---
+filename: "HOUSE_OVERSIGHT_030904.txt"
+sender: "[[Lawrence Krauss]]"
+receiver: "[[jeeyacation@gmail.com]]"
+date: "2011-04-06 22:58:21"
+---
+
+people are now throwing out my books, according to her blog.. more nonsense.. 
+On Apr 6, 2011, at 3:56 PM, Jeffrey Epstein wrote: 
+what evidence? no real sex.. where is she getting her so called facts 
+On Thu, Apr 7, 2011 at 12:18 AM, Lawrence Krauss < wrote: 
+Beyond anything else, you are my friend. I hope we can both always remember that, no matter what. 
+Are you coming this weekend at all? 
+Lawrence Krauss 
+Foundation Professor 
+School of Earth and Space Exploration and Physics Dept. 
+Co-director, Cosmology Initiative 
+and Director, Origins initiative 
+Arizona State University

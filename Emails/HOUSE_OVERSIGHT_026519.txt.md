@@ -1,0 +1,24 @@
+---
+filename: "HOUSE_OVERSIGHT_026519.txt"
+sender: "[[Sent]]"
+receiver: "[[Subject]]"
+date: 
+---
+
+Hi Jeffrey, 
+Attached please find the Sept 2 position. The realized gain 
+increased by the $28 k option premium that resulted from the 
+barrier level trading in USD JPY. The USD sold off vs the AUD, 
+GBP and the NZD today. The USD rallied against the CAD and the 
+JPY. 
+I have separated y t d p/lfrom Sept p/1 so that the numbers mean 
+more. 
+Hopefully the AUD will stay above .88 going into next Monday. As 
+I write this it is approx .9o, which is good. I know it's not BRL, but 
+I think that we are realizing some good gains. In the weeks ahead 
+volatility will likely increase as Congress considers standing behind 
+Obama and attacking Syria. Liquidity in restricted currencies can 
+disappear at the trader's will. I prefer that we trade liquid easily 
+currencies at a time like this. 
+Laurie 
+HOUSE OVERSIGHT 026519

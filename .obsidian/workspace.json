@@ -1,0 +1,218 @@
+{
+  "main": {
+    "id": "637f8eedc43ac401",
+    "type": "split",
+    "children": [
+      {
+        "id": "8b82735b0322edc0",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "9178c59da2732854",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Individual/Leon Black.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Leon Black"
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "vertical"
+  },
+  "left": {
+    "id": "b67a4bf02e7684c9",
+    "type": "split",
+    "children": [
+      {
+        "id": "1a480ac6580af732",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "515ee79e548af0c4",
+            "type": "leaf",
+            "state": {
+              "type": "file-explorer",
+              "state": {
+                "sortOrder": "alphabetical",
+                "autoReveal": false
+              },
+              "icon": "lucide-folder-closed",
+              "title": "Files"
+            }
+          },
+          {
+            "id": "b561c73f711de3ec",
+            "type": "leaf",
+            "state": {
+              "type": "search",
+              "state": {
+                "query": "",
+                "matchingCase": false,
+                "explainSearch": false,
+                "collapseAll": false,
+                "extraContext": false,
+                "sortOrder": "alphabetical"
+              },
+              "icon": "lucide-search",
+              "title": "Search"
+            }
+          },
+          {
+            "id": "0b8f11e4be49fb24",
+            "type": "leaf",
+            "state": {
+              "type": "bookmarks",
+              "state": {},
+              "icon": "lucide-bookmark",
+              "title": "Bookmarks"
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "horizontal",
+    "width": 300
+  },
+  "right": {
+    "id": "4b06feb456ce340e",
+    "type": "split",
+    "children": [
+      {
+        "id": "29ecd6373fc95fe0",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "1d0d6527556051d9",
+            "type": "leaf",
+            "state": {
+              "type": "backlink",
+              "state": {
+                "file": "Individual/Leon Black.md",
+                "collapseAll": false,
+                "extraContext": false,
+                "sortOrder": "alphabetical",
+                "showSearch": false,
+                "searchQuery": "",
+                "backlinkCollapsed": false,
+                "unlinkedCollapsed": false
+              },
+              "icon": "links-coming-in",
+              "title": "Backlinks for Leon Black"
+            }
+          },
+          {
+            "id": "3aa0d685ae84e1fc",
+            "type": "leaf",
+            "state": {
+              "type": "outgoing-link",
+              "state": {
+                "file": "Individual/Leon Black.md",
+                "linksCollapsed": false,
+                "unlinkedCollapsed": true
+              },
+              "icon": "links-going-out",
+              "title": "Outgoing links from Leon Black"
+            }
+          },
+          {
+            "id": "332cf27482d0a8e0",
+            "type": "leaf",
+            "state": {
+              "type": "tag",
+              "state": {
+                "sortOrder": "frequency",
+                "useHierarchy": true,
+                "showSearch": false,
+                "searchQuery": ""
+              },
+              "icon": "lucide-tags",
+              "title": "Tags"
+            }
+          },
+          {
+            "id": "8120e150c7aa2b2b",
+            "type": "leaf",
+            "state": {
+              "type": "all-properties",
+              "state": {
+                "sortOrder": "frequency",
+                "showSearch": false,
+                "searchQuery": ""
+              },
+              "icon": "lucide-archive",
+              "title": "All properties"
+            }
+          },
+          {
+            "id": "8fb51bbe75a86799",
+            "type": "leaf",
+            "state": {
+              "type": "outline",
+              "state": {
+                "file": "Individual/Leon Black.md",
+                "followCursor": false,
+                "showSearch": false,
+                "searchQuery": ""
+              },
+              "icon": "lucide-list",
+              "title": "Outline of Leon Black"
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "horizontal",
+    "width": 300
+  },
+  "left-ribbon": {
+    "hiddenItems": {
+      "switcher:Open quick switcher": false,
+      "graph:Open graph view": false,
+      "canvas:Create new canvas": false,
+      "daily-notes:Open today's daily note": false,
+      "templates:Insert template": false,
+      "command-palette:Open command palette": false,
+      "bases:Create new base": false
+    }
+  },
+  "active": "1d0d6527556051d9",
+  "lastOpenFiles": [
+    "Individual base.base",
+    "README.md",
+    "imgs/graph.png",
+    "Email base.base",
+    "Individual/Steve Bannon.md",
+    "Individual/to jeevacation@gmail.com.md",
+    "Individual/terry@impactoutdoor.com.md",
+    "Individual/tama@tkudmanlaw.corn.md",
+    "Individual/susan edelman sedelman@nypost.com1.md",
+    "Individual/susan edelman sedelman@nypost.com.md",
+    "Individual/susan edelman sedelman@nypost.com j.md",
+    "Individual/sedelman@nypost.com.md",
+    "Individual/scoop-notifications@nytimes.com.md",
+    "Individual/ross@acuityreputation.com.md",
+    "Individual/ross@acuityreputation. com.md",
+    "Individual/replies@rawstory.com.md",
+    "Individual/politics@smartbrief.com.md",
+    "Individual/players02@hotmail.com.md",
+    "Individual/pk@princeconcepts.com.md",
+    "Individual/paulkrassner@roadrunner.com.md",
+    "Individual/owlmgw@att.net.md",
+    "Individual/nytdirect@nytimes.com.md",
+    "Individual/nysd ecf pool@nysd.uscourts.gov.md",
+    "Individual/nysd ecf pool@nysd.uscourts.gov nysd.md",
+    "Individual/nysd ecf pool@nysd.uscourts.dov.md",
+    "Individual/noreply@mail.bloombergbusiness.com.md",
+    "Individual/newsletters@email.washingtonpost.com.md",
+    "Individual/nadja2102@yahoo.com.md",
+    "Individual",
+    "Emails"
+  ]
+}

@@ -1,0 +1,18 @@
+---
+filename: "HOUSE_OVERSIGHT_031281.txt"
+sender: "[[dkiesq@aol.com]]"
+receiver: "[[Michael; Charles]]"
+date: "2016-08-15 17:35:00"
+---
+
+JEFF EPSTEIN CHILD RAPES RELEASE DATE OCT 10 2016 STEVEN HOFFENBERG IS ON THE BOOK WRITING TEAM!!!! 
+Privileged - Redacted 
+HOUSE OVERSIGHT 031282 
+Privileged - Redacted 
+Thanks, 
+Regards, 
+Darren 
+DARREN K. INDYKE 
+DARREN K. INDYKE, PLLC 
+575 Lexington Avenue, 4th Floor 
+New York, New York 10022

@@ -1,0 +1,35 @@
+---
+filename: "HOUSE_OVERSIGHT_031990.txt"
+sender: "[[Newsmaxgreply.newsmax.corn]]"
+receiver: "[[Replyto Newsmaxgreply.newsmax.corn]]"
+date: "2010-12-27 21:03:04"
+---
+
+Breaking from Newsmax.com 
+Ken Starr Aiming High as Head of Baylor  
+Bill Clinton's one-time legal nemesis is earning high marks for his new 
+role as president of Texas' Baylor University. Whitewater prosecutor 
+Ken Starr is helping to heal divisions at the nation's largest Baptist 
+school as he seeks to raise its academic stature. 
+To Read the Full Story — Go Here Now  
+More Links: 
+The Healing Powers of Vinegar on Your Heart, Weight, More  
+Blood Pressure Can Be Cured Without Drugs  
+Terror Chatter High, Protect Your Family With Emergency Radio  
+Author Warns of End of 'American Empire', U.S. Stocks to Suffer  
+This e-mail is never sent unsolicited. You have received this Newsmax e-mail because you 
+subscribed to it or someone forwarded it to you. To opt out, see the links below. 
+TO ADVERTISE 
+For information on advertising, please contact Newsmax Advertising Sales via e-mail. 
+TO SUBSCRIBE 
+If this e-mail has been forwarded to you and you would like to sign up, please click here. 
+Remove your e-mail address from our list or modify your profile. We respect your right to 
+privacy. View our policy. 
+This e-mail was sent by: 
+Newsmax.com 
+HOUSE OVERSIGHT 031990 
+4152 West Blue Heron Blvd., Ste. 1114 
+Riviera Beach, FL 33404 USA 
+1042908 
+B5CC-1 
+HOUSE OVERSIGHT 031991

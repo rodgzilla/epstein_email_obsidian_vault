@@ -1,0 +1,25 @@
+---
+filename: "HOUSE_OVERSIGHT_029905.txt"
+sender: "[[Paul Krassner]]"
+receiver: "[[jeevacation@gmail.com]]"
+date: "2019-03-07 04:27:09"
+---
+
+Reply-To: "HumanEvents.com" <r-
+ysmIlbbqqlsnfcqqgvnrswzfrrbsfrffsqzpggvggfvzccqwtsb@humaneventsmail.com> 
+Media Magic: How a Democrat Pedophile 
+Became a 'Trump Scandal' 
+Strangely, the media have suddenly taken an intense interest in the case of pedophile and 
+major Democratic donor Jeffrey Epstein. 
+In 2005, the Palm Beach police were told by the mother of a young girl in West Palm 
+Beach that her daughter had been brought to the Democratic donor's mansion and asked 
+to have sex with him for money. This kicked off an intensive, one-year undercover 
+investigation. 
+The police sifted through Epstein's garbage and interviewed 17 witnesses, including the 
+housemen, who told of sex toys and dildos left behind after the underage girls left. One of 
+Epstein's procurers, a 20-year-old local woman named Haley Robson, who was paid $200 
+HOUSE OVERSIGHT 029905 
+for every teenaged girl she brought to Jeffrey, was cooperating with police, telling them 
+she was like "Heidi Fleiss." They obtained statements from five of Epstein's young victims, 
+who said they'd been paid $200 to $300 to engage in various sex acts with ... 
+Continue reading...

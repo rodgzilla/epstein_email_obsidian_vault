@@ -1,0 +1,25 @@
+---
+filename: "HOUSE_OVERSIGHT_026849.txt"
+sender: "[[Stevenhoffenberg]]"
+receiver: "[[Subject Tweet From Steven Hoffenbergw stevenhoffenber]]"
+date: "2016-05-19 22:43:26"
+---
+
+i> 
+:41772.r. 
+steven hoffenbergw ((&,stevenhoffenber) 
+5/19/16, 10:42 PM  
+CLINTON CRIMES RAPING LITTLE GIRLS TRUMP SUPER PAC GET OUR JOBS BACK INC ADS 
+SHOWS CLINTON CRIMES 
+Download the official Twitter app here 
+Steven J. Hoffenberg 
+New York Post Publishing Inc. 
+CEO 
+WHAM INC. THE PUBLIC COMPANY OWNS THE BELOW OPERATIONS 
+TOWERSINVESTORS.COM  
+CEO 
+SEE 
+POST PUBLISHING.BUZZ THE JESUS CHRIST ON LINE GODs WORD NEWSPAPER 
+MR HOFFENBERG ONLINE NEWSPAPER 
+PUBLICSPEAKINGWALLSTREET.COM 
+HOUSE OVERSIGHT 026850

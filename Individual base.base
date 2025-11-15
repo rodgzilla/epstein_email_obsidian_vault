@@ -1,0 +1,9 @@
+filters:
+  and:
+    - file.inFolder("Individual")
+views:
+  - type: table
+    name: Table
+    order:
+      - file.name
+      - file.backlinks

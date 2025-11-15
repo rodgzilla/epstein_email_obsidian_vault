@@ -1,0 +1,16 @@
+---
+filename: "HOUSE_OVERSIGHT_031709.txt"
+sender: "[[Sultan Bin Sulayem]]"
+receiver: "[[jeevacation@gmail.com]]"
+date: "2016-10-12 07:53:37"
+---
+
+I saw this on the BBC News App and thought you should see it: 
+silver linin in #Trum iTaies stor 
+While the video of Donald Trump denigrating women has horrified 
+many, the backlash has also showed how much has changed for 
+omen. Trumps PUSSY Gate 
+Disclaimer: The BBC is not responsible for the content of this email, and anything 
+itten in this email does not necessarily reflect the BBC's views or opinions. Please 
+ote that neither the email address nor name of the sender have been verified. 
+HOUSE OVERSIGHT 031709
